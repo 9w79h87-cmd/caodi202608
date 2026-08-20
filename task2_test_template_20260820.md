@@ -28,1679 +28,1679 @@
 
 <h2>相关阅读</h2>
 
-<h3>美国财政部长贝森特称美债回购操作单次规模可能超过40亿美元</h3>
+<h3>摩根大通警告：财政部加倍回购长债，可能抬升而非压低收益率</h3>
 
-<p><a href='https://github.com/dmwke4-ops/youxi202608/blob/main/20260821-1yq3zoy3.md'>美国财政部长贝森特称美债回购操作单次规模可能超过40亿美元</a></p>
+<p><a href='https://github.com/raeganazariahqswbdr1627-cpu/keji202608/blob/main/20260821-0gcnkcz7.md'>摩根大通警告：财政部加倍回购长债，可能抬升而非压低收益率</a></p>
 
-<h3>住房市场持续承压，Hovnanian转亏</h3>
+<h3>如何扑灭由二战遗留弹药助长的野火？试试无人驾驶坦克</h3>
 
-<p><a href='https://github.com/mejiastanle/20260718_14/blob/main/20260821-e1e1aiw7.md'>住房市场持续承压，Hovnanian转亏</a></p>
+<p><a href='https://github.com/bdor2v-code/xinwen202608/blob/main/20260821-ittr4jwn.md'>如何扑灭由二战遗留弹药助长的野火？试试无人驾驶坦克</a></p>
 
-<h3>美债管理策略失去可预测性 投资者警告政府融资成本恐上升</h3>
+<h3>8月21日美股收盘：长债收益率反弹抹去回购利好，沃尔玛暴跌近9%拖累道指重挫超700点</h3>
 
-<p><a href='https://github.com/asadw0454/20260718_11/blob/main/20260821-nzp851u6.md'>美债管理策略失去可预测性 投资者警告政府融资成本恐上升</a></p>
-
-<h3>纳斯达克100指数恐五连跌 油价、收益率攀升令美股承压</h3>
-
-<p><a href='https://github.com/johannaamandagxsalk7151-pixel/ziran202608/blob/main/20260821-bc5h52dr.md'>纳斯达克100指数恐五连跌 油价、收益率攀升令美股承压</a></p>
-
-<h3>A股缩量普涨，释放什么信号？</h3>
-
-<p><a href='https://github.com/theahayleendnoqd6760-ux/xinwen202608/blob/main/20260821-lah12ged.md'>A股缩量普涨，释放什么信号？</a></p>
-
-<h3>贝森特称财政部债券回购规模或将超过40亿美元</h3>
-
-<p><a href='https://github.com/dmwke4-ops/dianying202608/blob/main/20260821-vk50wjj1.md'>贝森特称财政部债券回购规模或将超过40亿美元</a></p>
-
-<h3>贝森特称财政部债券回购规模或将超过40亿美元</h3>
-
-<p><a href='https://github.com/malaysiamileyetmynx3953-sketch/ziran202608/blob/main/20260821-gl0g2kxe.md'>贝森特称财政部债券回购规模或将超过40亿美元</a></p>
-
-<h3>一次性补税8381万！“西北王”金徽酒净利大降28%</h3>
-
-<p><a href='https://github.com/annikaoakleighzinjiu1817-prog/wenhua202608/blob/main/20260821-lropdvfv.md'>一次性补税8381万！“西北王”金徽酒净利大降28%</a></p>
-
-<h3>美财长贝森特在债券市场宣告妥协</h3>
-
-<p><a href='https://github.com/joannaaarnamjvstl1553-ship-it/guangming202608/blob/main/20260821-1rtc9yyv.md'>美财长贝森特在债券市场宣告妥协</a></p>
-
-<h3>美联储7月纪要：三人已投票加息，多人警告“通胀若不降就要收紧”</h3>
-
-<p><a href='https://github.com/ramonaviviansbkhfb9905-create/ziran202608/blob/main/20260821-gqfo9kbf.md'>美联储7月纪要：三人已投票加息，多人警告“通胀若不降就要收紧”</a></p>
-
-<h3>3.19亿股新股解禁，SpaceX股价回落至发行价附近</h3>
-
-<p><a href='https://github.com/bernettcoia/20260718_12/blob/main/20260814-gn279ucb.md'>3.19亿股新股解禁，SpaceX股价回落至发行价附近</a></p>
-
-<h3>大华股份2026半年报出炉</h3>
-
-<p><a href='https://github.com/bernettcoia/20260718_14/blob/main/20260819-2zfdr8vq.md'>大华股份2026半年报出炉</a></p>
-
-<h3>美国“救市”次日，美债又“崩”了</h3>
-
-<p><a href='https://github.com/bernettcoia/20260718_17/blob/main/20260722_4z2aa.md'>美国“救市”次日，美债又“崩”了</a></p>
-
-<h3>一次性补税8381万！“西北王”金徽酒净利大降28%</h3>
-
-<p><a href='https://github.com/bernettcoia/20260718_19/blob/main/20260725_yijd1.md'>一次性补税8381万！“西北王”金徽酒净利大降28%</a></p>
-
-<h3>六国棋手“云端”对弈 重庆武隆“白马山杯”东南亚围棋邀请赛开幕</h3>
-
-<p><a href='https://github.com/dmwke4-ops/caijing202608/blob/main/20260811-673wrwrg.md'>六国棋手“云端”对弈 重庆武隆“白马山杯”东南亚围棋邀请赛开幕</a></p>
-
-<h3>大体重记者跑采访不再愁？记者实测外骨骼机器人</h3>
-
-<p><a href='https://github.com/dmwke4-ops/fangchan202608/blob/main/20260808-bd1fvlnj.md'>大体重记者跑采访不再愁？记者实测外骨骼机器人</a></p>
-
-<h3>六国棋手“云端”对弈 重庆武隆“白马山杯”东南亚围棋邀请赛开幕</h3>
-
-<p><a href='https://github.com/dmwke4-ops/jiaoyu202608/blob/main/20260803_78u3l.md'>六国棋手“云端”对弈 重庆武隆“白马山杯”东南亚围棋邀请赛开幕</a></p>
-
-<h3>迪尔公司营收攀升，利润实现增长</h3>
-
-<p><a href='https://github.com/dmwke4-ops/lvyou202608/blob/main/20260820-5i0tpti2.md'>迪尔公司营收攀升，利润实现增长</a></p>
-
-<h3>迪尔公司营收攀升，利润实现增长</h3>
-
-<p><a href='https://github.com/dmwke4-ops/shenghuo202608/blob/main/20260816-km9sfnv5.md'>迪尔公司营收攀升，利润实现增长</a></p>
+<p><a href='https://github.com/lindsayawren-sys/test555/blob/main/20260821-sy5vl04n.md'>8月21日美股收盘：长债收益率反弹抹去回购利好，沃尔玛暴跌近9%拖累道指重挫超700点</a></p>
 
 <h3>伊朗外交部谴责美国对伊实施新一轮经济制裁</h3>
 
-<p><a href='https://github.com/dmwke4-ops/wenhua202608/blob/main/20260814-zuh76nu4.md'>伊朗外交部谴责美国对伊实施新一轮经济制裁</a></p>
+<p><a href='https://github.com/adelynmikaelakcgnmt0762-spec/guangming202608/blob/main/20260821-824ejy6n.md'>伊朗外交部谴责美国对伊实施新一轮经济制裁</a></p>
 
-<h3>南钢股份上半年营收311.3亿元 净利同比降9.64%</h3>
+<h3>美国住房负担能力指数自2023年以来首次恶化</h3>
 
-<p><a href='https://github.com/dmwke4-ops/youxi202608/blob/main/20260813-8inu6nxw.md'>南钢股份上半年营收311.3亿元 净利同比降9.64%</a></p>
-
-<h3>美财长贝森特在债券市场宣告妥协</h3>
-
-<p><a href='https://github.com/ero9esx-creator/caijing202608/blob/main/20260810-hbcz2aqf.md'>美财长贝森特在债券市场宣告妥协</a></p>
-
-<h3>旧金山联储行长戴利认为美债市场显示出对美联储政策立场的信任</h3>
-
-<p><a href='https://github.com/ero9esx-creator/fangchan202608/blob/main/20260807-qbaj4ipd.md'>旧金山联储行长戴利认为美债市场显示出对美联储政策立场的信任</a></p>
-
-<h3>医院通报“孕妇因医生疏忽误服液体”：涉事医生已暂停执业</h3>
-
-<p><a href='https://github.com/ero9esx-creator/jiaoyu202608/blob/main/20260802_7tyyd.md'>医院通报“孕妇因医生疏忽误服液体”：涉事医生已暂停执业</a></p>
-
-<h3>美军中央司令部称“华盛顿”号航母已部署在中东</h3>
-
-<p><a href='https://github.com/ero9esx-creator/lvyou202608/blob/main/20260819-eiki56sm.md'>美军中央司令部称“华盛顿”号航母已部署在中东</a></p>
-
-<h3>歌剧《卡门》中文版厦门上演 97岁指挥家郑小瑛执棒</h3>
-
-<p><a href='https://github.com/ero9esx-creator/shenghuo202608/blob/main/20260815-xgw9sk3o.md'>歌剧《卡门》中文版厦门上演 97岁指挥家郑小瑛执棒</a></p>
-
-<h3>国家发展改革委主任郑栅洁主持召开民营企业座谈会 围绕稳定经济运行促进有效投资听取意见建议</h3>
-
-<p><a href='https://github.com/ero9esx-creator/wenhua202608/blob/main/20260814-kr3esyeh.md'>国家发展改革委主任郑栅洁主持召开民营企业座谈会 围绕稳定经济运行促进有效投资听取意见建议</a></p>
-
-<h3>大体重记者跑采访不再愁？记者实测外骨骼机器人</h3>
-
-<p><a href='https://github.com/ero9esx-creator/youxi202608/blob/main/20260812-nhz8ptx2.md'>大体重记者跑采访不再愁？记者实测外骨骼机器人</a></p>
-
-<h3>香港举办“东盟电影节2026” 逾30部佳片促文化交流合作</h3>
-
-<p><a href='https://github.com/fatimarubytiphxr0019-glitch/caodi202608/blob/main/20260810-0fhh1brc.md'>香港举办“东盟电影节2026” 逾30部佳片促文化交流合作</a></p>
-
-<h3>AI数据中心引发普遍不满：从商业广告到大选，抗议之声四处蔓延</h3>
-
-<p><a href='https://github.com/fatimarubytiphxr0019-glitch/shenghuo202608/blob/main/20260820-6wm5hf5e.md'>AI数据中心引发普遍不满：从商业广告到大选，抗议之声四处蔓延</a></p>
-
-<h3>诺和新元营收超预期、上调业绩指引，领涨欧洲斯托克600指数</h3>
-
-<p><a href='https://github.com/stellakhaleesikpzujq5409-blip/yinyue202608/blob/main/20260821-olzdas0y.md'>诺和新元营收超预期、上调业绩指引，领涨欧洲斯托克600指数</a></p>
-
-<h3>申请美国大学的外国学生出现近十年来最大降幅</h3>
-
-<p><a href='https://github.com/hubbygoing144-wq/caodi202607/blob/main/20260821-f0l7tlcv.md'>申请美国大学的外国学生出现近十年来最大降幅</a></p>
-
-<h3>美军中央司令部称“华盛顿”号航母已部署在中东</h3>
-
-<p><a href='https://github.com/adelinafreyjatlhgja6901-tech/keji202608/blob/main/20260821-98d25yju.md'>美军中央司令部称“华盛顿”号航母已部署在中东</a></p>
-
-<h3>餐饮黄牛高价倒卖排号是否涉嫌违法？律师解读来了</h3>
-
-<p><a href='https://github.com/kendalljuliettedvcyso3265-web/ziran202608/blob/main/20260821-zm36f3b5.md'>餐饮黄牛高价倒卖排号是否涉嫌违法？律师解读来了</a></p>
-
-<h3>香港举办“东盟电影节2026” 逾30部佳片促文化交流合作</h3>
-
-<p><a href='https://github.com/asadw0454/20260718_07/blob/main/20260821-ptx7v8zn.md'>香港举办“东盟电影节2026” 逾30部佳片促文化交流合作</a></p>
-
-<h3>大体重记者跑采访不再愁？记者实测外骨骼机器人</h3>
-
-<p><a href='https://github.com/linhh234/20260718_17/blob/main/20260821-kl2ujzkg.md'>大体重记者跑采访不再愁？记者实测外骨骼机器人</a></p>
-
-<h3>纳斯达克100指数恐五连跌 油价、收益率攀升令美股承压</h3>
-
-<p><a href='https://github.com/bdor2v-code/shenghuo202608/blob/main/20260821-aq5ygp78.md'>纳斯达克100指数恐五连跌 油价、收益率攀升令美股承压</a></p>
-
-<h3>3.19亿股新股解禁，SpaceX股价回落至发行价附近</h3>
-
-<p><a href='https://github.com/miot0t-create/guangming202608/blob/main/20260821-x5e04a8y.md'>3.19亿股新股解禁，SpaceX股价回落至发行价附近</a></p>
-
-<h3>股价跌停，罗普斯金独家回应：公司随行就市购置原材料</h3>
-
-<p><a href='https://github.com/dmwke4-ops/xinwen202608/blob/main/20260821-kuqqg7zm.md'>股价跌停，罗普斯金独家回应：公司随行就市购置原材料</a></p>
-
-<h3>迪尔公司营收攀升，利润实现增长</h3>
-
-<p><a href='https://github.com/stellakhaleesikpzujq5409-blip/xinwen202608/blob/main/20260821-i1ia2zxc.md'>迪尔公司营收攀升，利润实现增长</a></p>
-
-<h3>A股缩量普涨，释放什么信号？</h3>
-
-<p><a href='https://github.com/hevwybsv-art/ziran202607/blob/main/20260821-63z2souc.md'>A股缩量普涨，释放什么信号？</a></p>
-
-<h3>海拔3500米巅峰对决！拉萨消防比武赛场超燃</h3>
-
-<p><a href='https://github.com/adelinafreyjatlhgja6901-tech/caodi202608/blob/main/20260821-xe7cni6w.md'>海拔3500米巅峰对决！拉萨消防比武赛场超燃</a></p>
-
-<h3>大体重记者跑采访不再愁？记者实测外骨骼机器人</h3>
-
-<p><a href='https://github.com/kendalljuliettedvcyso3265-web/yinyue202608/blob/main/20260821-q2aj0yin.md'>大体重记者跑采访不再愁？记者实测外骨骼机器人</a></p>
-
-<h3>贝森特称可能进一步加大美债回购力度 并将公布新的财政举措</h3>
-
-<p><a href='https://github.com/asadw0454/20260718_06/blob/main/20260821-hdw4klcv.md'>贝森特称可能进一步加大美债回购力度 并将公布新的财政举措</a></p>
-
-<h3>2026年两岸关系研讨会在武汉开幕</h3>
-
-<p><a href='https://github.com/linhh234/20260718_16/blob/main/20260821-4yimahyt.md'>2026年两岸关系研讨会在武汉开幕</a></p>
-
-<h3>大体重记者跑采访不再愁？记者实测外骨骼机器人</h3>
-
-<p><a href='https://github.com/bdor2v-code/meishi202608/blob/main/20260821-tirpbrv5.md'>大体重记者跑采访不再愁？记者实测外骨骼机器人</a></p>
-
-<h3>受汽油和柴油拉动，加拿大7月生产者价格上涨</h3>
-
-<p><a href='https://github.com/miot0t-create/fangchan202608/blob/main/20260821-nh6mu9bq.md'>受汽油和柴油拉动，加拿大7月生产者价格上涨</a></p>
-
-<h3>阿克托斯资本同意收购亚特兰大猎鹰队10%股份，球队估值106亿美元</h3>
-
-<p><a href='https://github.com/dmwke4-ops/wenhua202608/blob/main/20260821-dgyqlda1.md'>阿克托斯资本同意收购亚特兰大猎鹰队10%股份，球队估值106亿美元</a></p>
-
-<h3>特朗普称白宫立法事务主任布雷德将离职</h3>
-
-<p><a href='https://github.com/stellakhaleesikpzujq5409-blip/wenhua202608/blob/main/20260821-2ehhv0a5.md'>特朗普称白宫立法事务主任布雷德将离职</a></p>
-
-<h3>胡塞武装称对沙特发动无人机袭击</h3>
-
-<p><a href='https://github.com/hevwybsv-art/shenghuo202607/blob/main/20260821-svp6xmue.md'>胡塞武装称对沙特发动无人机袭击</a></p>
-
-<h3>英国银行业巨头联名致信警告，不要进一步提高税收</h3>
-
-<p><a href='https://github.com/adaleefayeocgzyd5066-lang/ziran202608/blob/main/20260821-hv3hwh9q.md'>英国银行业巨头联名致信警告，不要进一步提高税收</a></p>
-
-<h3>上市公司组织百人“抢公章”？ 海威华芯控制权纠纷升级</h3>
-
-<p><a href='https://github.com/kendalljuliettedvcyso3265-web/xinwen202608/blob/main/20260821-d6ef61lm.md'>上市公司组织百人“抢公章”？ 海威华芯控制权纠纷升级</a></p>
-
-<h3>诺和新元营收超预期、上调业绩指引，领涨欧洲斯托克600指数</h3>
-
-<p><a href='https://github.com/asadw0454/20260718_05/blob/main/20260821-3s867id1.md'>诺和新元营收超预期、上调业绩指引，领涨欧洲斯托克600指数</a></p>
-
-<h3>胡塞武装称对沙特发动无人机袭击</h3>
-
-<p><a href='https://github.com/linhh234/20260718_14/blob/main/20260821-tbw4o2pv.md'>胡塞武装称对沙特发动无人机袭击</a></p>
-
-<h3>股价跌停，罗普斯金独家回应：公司随行就市购置原材料</h3>
-
-<p><a href='https://github.com/bdor2v-code/lvyou202608/blob/main/20260821-kgycpasq.md'>股价跌停，罗普斯金独家回应：公司随行就市购置原材料</a></p>
-
-<h3>如何扑灭由二战遗留弹药助长的野火？试试无人驾驶坦克</h3>
-
-<p><a href='https://github.com/miot0t-create/dianying202608/blob/main/20260821-c03al5jr.md'>如何扑灭由二战遗留弹药助长的野火？试试无人驾驶坦克</a></p>
-
-<h3>折叠屏iPad项目流产：苹果最后还是选择砍掉</h3>
-
-<p><a href='https://github.com/dmwke4-ops/shishang202608/blob/main/20260821-zxeorjn9.md'>折叠屏iPad项目流产：苹果最后还是选择砍掉</a></p>
-
-<h3>大华股份2026半年报出炉</h3>
-
-<p><a href='https://github.com/stellakhaleesikpzujq5409-blip/keji202608/blob/main/20260821-rvaopd0k.md'>大华股份2026半年报出炉</a></p>
-
-<h3>德国今年4月以来约有1.4万人因高温相关因素死亡</h3>
-
-<p><a href='https://github.com/hevwybsv-art/guangming202607/blob/main/20260821-ga8zmoxo.md'>德国今年4月以来约有1.4万人因高温相关因素死亡</a></p>
-
-<h3>贝森特：美国加大对伊朗经济施压，大概率不会重启大规模对伊作战</h3>
-
-<p><a href='https://github.com/adaleefayeocgzyd5066-lang/yinyue202608/blob/main/20260821-alv93fpl.md'>贝森特：美国加大对伊朗经济施压，大概率不会重启大规模对伊作战</a></p>
-
-<h3>香港举办“东盟电影节2026” 逾30部佳片促文化交流合作</h3>
-
-<p><a href='https://github.com/kendalljuliettedvcyso3265-web/shenghuo202608/blob/main/20260821-yeow5bgy.md'>香港举办“东盟电影节2026” 逾30部佳片促文化交流合作</a></p>
-
-<h3>住房市场持续承压，Hovnanian转亏</h3>
-
-<p><a href='https://github.com/asadw0454/20260718_03/blob/main/20260821-ndi35yzj.md'>住房市场持续承压，Hovnanian转亏</a></p>
-
-<h3>一次性补税8381万！“西北王”金徽酒净利大降28%</h3>
-
-<p><a href='https://github.com/linhh234/20260718_13/blob/main/20260821-dofddur0.md'>一次性补税8381万！“西北王”金徽酒净利大降28%</a></p>
-
-<h3>杰克逊霍尔前瞻：沃什首次主席演讲，市场要的是反应函数，不是支付主题</h3>
-
-<p><a href='https://github.com/bdor2v-code/keji202608/blob/main/20260821-94o5at3b.md'>杰克逊霍尔前瞻：沃什首次主席演讲，市场要的是反应函数，不是支付主题</a></p>
-
-<h3>3.19亿股新股解禁，SpaceX股价回落至发行价附近</h3>
-
-<p><a href='https://github.com/miot0t-create/caijing202608/blob/main/20260821-umz1pltv.md'>3.19亿股新股解禁，SpaceX股价回落至发行价附近</a></p>
-
-<h3>百余青少年“骑”聚北京延庆比拼竞速</h3>
-
-<p><a href='https://github.com/dmwke4-ops/shenghuo202608/blob/main/20260821-ki4v48no.md'>百余青少年“骑”聚北京延庆比拼竞速</a></p>
-
-<h3>大体重记者跑采访不再愁？记者实测外骨骼机器人</h3>
-
-<p><a href='https://github.com/stellakhaleesikpzujq5409-blip/guangming202608/blob/main/20260821-esewab7r.md'>大体重记者跑采访不再愁？记者实测外骨骼机器人</a></p>
-
-<h3>上市公司组织百人“抢公章”？ 海威华芯控制权纠纷升级</h3>
-
-<p><a href='https://github.com/hevwybsv-art/caodi202607/blob/main/20260821-34ctlyep.md'>上市公司组织百人“抢公章”？ 海威华芯控制权纠纷升级</a></p>
-
-<h3>受汽油和柴油拉动，加拿大7月生产者价格上涨</h3>
-
-<p><a href='https://github.com/adaleefayeocgzyd5066-lang/wenhua202608/blob/main/20260821-u7y1evq8.md'>受汽油和柴油拉动，加拿大7月生产者价格上涨</a></p>
-
-<h3>歌剧《卡门》中文版厦门上演 97岁指挥家郑小瑛执棒</h3>
-
-<p><a href='https://github.com/kendalljuliettedvcyso3265-web/keji202608/blob/main/20260821-nelmo9tu.md'>歌剧《卡门》中文版厦门上演 97岁指挥家郑小瑛执棒</a></p>
-
-<h3>债券市场与六旗乐园的相通之处</h3>
-
-<p><a href='https://github.com/asadw0454/20260718_02/blob/main/20260821-bg70gk39.md'>债券市场与六旗乐园的相通之处</a></p>
-
-<h3>住房市场持续承压，Hovnanian转亏</h3>
-
-<p><a href='https://github.com/linhh234/20260718_12/blob/main/20260821-4qs7pupa.md'>住房市场持续承压，Hovnanian转亏</a></p>
-
-<h3>美债管理策略失去可预测性 投资者警告政府融资成本恐上升</h3>
-
-<p><a href='https://github.com/bdor2v-code/jiankang202608/blob/main/20260821-uktgbhc3.md'>美债管理策略失去可预测性 投资者警告政府融资成本恐上升</a></p>
-
-<h3>餐饮黄牛高价倒卖排号是否涉嫌违法？律师解读来了</h3>
-
-<p><a href='https://github.com/mikaylaryleeeschkq9257-dot/ziran202608/blob/main/20260821-kcsi589j.md'>餐饮黄牛高价倒卖排号是否涉嫌违法？律师解读来了</a></p>
-
-<h3>杰克逊霍尔前瞻：沃什首次主席演讲，市场要的是反应函数，不是支付主题</h3>
-
-<p><a href='https://github.com/dmwke4-ops/qiche202608/blob/main/20260821-emq273jf.md'>杰克逊霍尔前瞻：沃什首次主席演讲，市场要的是反应函数，不是支付主题</a></p>
-
-<h3>美联储7月纪要：三人已投票加息，多人警告“通胀若不降就要收紧”</h3>
-
-<p><a href='https://github.com/stellakhaleesikpzujq5409-blip/caodi202608/blob/main/20260821-2fmjpte2.md'>美联储7月纪要：三人已投票加息，多人警告“通胀若不降就要收紧”</a></p>
-
-<h3>美国“救市”次日，美债又“崩”了</h3>
-
-<p><a href='https://github.com/helenaddysonkahuuj0793-create/yinyue202608/blob/main/20260821-oxl49oja.md'>美国“救市”次日，美债又“崩”了</a></p>
-
-<h3>餐饮黄牛高价倒卖排号是否涉嫌违法？律师解读来了</h3>
-
-<p><a href='https://github.com/adaleefayeocgzyd5066-lang/shenghuo202608/blob/main/20260821-mhfpyxn8.md'>餐饮黄牛高价倒卖排号是否涉嫌违法？律师解读来了</a></p>
-
-<h3>胡塞武装称对沙特发动无人机袭击</h3>
-
-<p><a href='https://github.com/kendalljuliettedvcyso3265-web/guangming202608/blob/main/20260821-91tk7tzc.md'>胡塞武装称对沙特发动无人机袭击</a></p>
-
-<h3>杰克逊霍尔前瞻：沃什首次主席演讲，市场要的是反应函数，不是支付主题</h3>
-
-<p><a href='https://github.com/asadw0454/20260718_01/blob/main/20260821-097c7k7j.md'>杰克逊霍尔前瞻：沃什首次主席演讲，市场要的是反应函数，不是支付主题</a></p>
-
-<h3>英国银行业巨头联名致信警告，不要进一步提高税收</h3>
-
-<p><a href='https://github.com/linhh234/20260718_10/blob/main/20260821-pvdicgtl.md'>英国银行业巨头联名致信警告，不要进一步提高税收</a></p>
-
-<h3>香港举办“东盟电影节2026” 逾30部佳片促文化交流合作</h3>
-
-<p><a href='https://github.com/bdor2v-code/guangming202608/blob/main/20260821-j4q697kp.md'>香港举办“东盟电影节2026” 逾30部佳片促文化交流合作</a></p>
+<p><a href='https://github.com/fatimarubytiphxr0019-glitch/ziran202608/blob/main/20260821-mhqnvp0e.md'>美国住房负担能力指数自2023年以来首次恶化</a></p>
 
 <h3>六国棋手“云端”对弈 重庆武隆“白马山杯”东南亚围棋邀请赛开幕</h3>
 
-<p><a href='https://github.com/mikaylaryleeeschkq9257-dot/yinyue202608/blob/main/20260821-62pe650w.md'>六国棋手“云端”对弈 重庆武隆“白马山杯”东南亚围棋邀请赛开幕</a></p>
+<p><a href='https://github.com/miot0t-create/xinwen202608/blob/main/20260821-yeg9tenu.md'>六国棋手“云端”对弈 重庆武隆“白马山杯”东南亚围棋邀请赛开幕</a></p>
 
-<h3>餐饮黄牛高价倒卖排号是否涉嫌违法？律师解读来了</h3>
+<h3>美国住房负担能力指数自2023年以来首次恶化</h3>
 
-<p><a href='https://github.com/dmwke4-ops/lvyou202608/blob/main/20260821-xm5kwzw9.md'>餐饮黄牛高价倒卖排号是否涉嫌违法？律师解读来了</a></p>
-
-<h3>美国财政部长贝森特称美债回购操作单次规模可能超过40亿美元</h3>
-
-<p><a href='https://github.com/ramonaviviansbkhfb9905-create/yinyue202608/blob/main/20260821-o81b1h1t.md'>美国财政部长贝森特称美债回购操作单次规模可能超过40亿美元</a></p>
-
-<h3>纳斯达克100指数恐五连跌 油价、收益率攀升令美股承压</h3>
-
-<p><a href='https://github.com/helenaddysonkahuuj0793-create/xinwen202608/blob/main/20260821-iny7dbex.md'>纳斯达克100指数恐五连跌 油价、收益率攀升令美股承压</a></p>
-
-<h3>杰克逊霍尔前瞻：沃什首次主席演讲，市场要的是反应函数，不是支付主题</h3>
-
-<p><a href='https://github.com/adaleefayeocgzyd5066-lang/keji202608/blob/main/20260821-5ecwzj80.md'>杰克逊霍尔前瞻：沃什首次主席演讲，市场要的是反应函数，不是支付主题</a></p>
-
-<h3>美国财政部长贝森特称美债回购操作单次规模可能超过40亿美元</h3>
-
-<p><a href='https://github.com/kategeorgiaxtgxfl9771-lab/ziran202608/blob/main/20260821-w0gxhtno.md'>美国财政部长贝森特称美债回购操作单次规模可能超过40亿美元</a></p>
-
-<h3>纳斯达克100指数恐五连跌 油价、收益率攀升令美股承压</h3>
-
-<p><a href='https://github.com/annikaoakleighzinjiu1817-prog/yinyue202608/blob/main/20260821-q5a6k2dt.md'>纳斯达克100指数恐五连跌 油价、收益率攀升令美股承压</a></p>
-
-<h3>住房市场持续承压，Hovnanian转亏</h3>
-
-<p><a href='https://github.com/linhh234/20260718_09/blob/main/20260821-bqqt5s33.md'>住房市场持续承压，Hovnanian转亏</a></p>
-
-<h3>上市公司组织百人“抢公章”？ 海威华芯控制权纠纷升级</h3>
-
-<p><a href='https://github.com/bdor2v-code/fangchan202608/blob/main/20260821-501wuhrs.md'>上市公司组织百人“抢公章”？ 海威华芯控制权纠纷升级</a></p>
-
-<h3>2026年两岸关系研讨会在武汉开幕</h3>
-
-<p><a href='https://github.com/mikaylaryleeeschkq9257-dot/wenhua202608/blob/main/20260821-v9vxfq1z.md'>2026年两岸关系研讨会在武汉开幕</a></p>
-
-<h3>大体重记者跑采访不再愁？记者实测外骨骼机器人</h3>
-
-<p><a href='https://github.com/dmwke4-ops/keji202608/blob/main/20260821-hmuq82jl.md'>大体重记者跑采访不再愁？记者实测外骨骼机器人</a></p>
-
-<h3>A股缩量普涨，释放什么信号？</h3>
-
-<p><a href='https://github.com/ramonaviviansbkhfb9905-create/xinwen202608/blob/main/20260821-aiqninm6.md'>A股缩量普涨，释放什么信号？</a></p>
+<p><a href='https://github.com/bdor2v-code/caodi202608/blob/main/20260821-ccoknewr.md'>美国住房负担能力指数自2023年以来首次恶化</a></p>
 
 <h3>美国下周将揭晓孤立伊朗经济的计划</h3>
 
-<p><a href='https://github.com/helenaddysonkahuuj0793-create/wenhua202608/blob/main/20260821-3kacss2p.md'>美国下周将揭晓孤立伊朗经济的计划</a></p>
+<p><a href='https://github.com/lindsayawren-sys/20260718_06/blob/main/20260821-q3v6xl40.md'>美国下周将揭晓孤立伊朗经济的计划</a></p>
+
+<h3>美军中央司令部称“华盛顿”号航母已部署在中东</h3>
+
+<p><a href='https://github.com/adaleefayeocgzyd5066-lang/shenghuo202608/blob/main/20260821-5ejvrgay.md'>美军中央司令部称“华盛顿”号航母已部署在中东</a></p>
+
+<h3>特朗普称白宫立法事务主任布雷德将离职</h3>
+
+<p><a href='https://github.com/ero9esx-creator/tiyu202608/blob/main/20260821-h9lgezbz.md'>特朗普称白宫立法事务主任布雷德将离职</a></p>
+
+<h3>美国财政部长贝森特称美债回购操作单次规模可能超过40亿美元</h3>
+
+<p><a href='https://github.com/bernettcoia/20260718_13/blob/main/20260727_yj3bb.md'>美国财政部长贝森特称美债回购操作单次规模可能超过40亿美元</a></p>
+
+<h3>英国银行业巨头联名致信警告，不要进一步提高税收</h3>
+
+<p><a href='https://github.com/bernettcoia/20260718_15/blob/main/20260801_5f80n.md'>英国银行业巨头联名致信警告，不要进一步提高税收</a></p>
+
+<h3>英国银行业巨头联名致信警告，不要进一步提高税收</h3>
+
+<p><a href='https://github.com/bernettcoia/20260718_17/blob/main/20260805_xg85d.md'>英国银行业巨头联名致信警告，不要进一步提高税收</a></p>
+
+<h3>如何扑灭由二战遗留弹药助长的野火？试试无人驾驶坦克</h3>
+
+<p><a href='https://github.com/bernettcoia/20260718_19/blob/main/20260808-gklhzdp8.md'>如何扑灭由二战遗留弹药助长的野火？试试无人驾驶坦克</a></p>
+
+<h3>债券收益率是“房间里的大象” 股票投资者却对其视而不见</h3>
+
+<p><a href='https://github.com/dmwke4-ops/caijing202608/blob/main/20260819-3lzlwbbq.md'>债券收益率是“房间里的大象” 股票投资者却对其视而不见</a></p>
+
+<h3>美国下周将揭晓孤立伊朗经济的计划</h3>
+
+<p><a href='https://github.com/dmwke4-ops/fangchan202608/blob/main/20260815-ka13n0k1.md'>美国下周将揭晓孤立伊朗经济的计划</a></p>
+
+<h3>特朗普政府推进加密货币新规，关键法案在国会受阻</h3>
+
+<p><a href='https://github.com/dmwke4-ops/jiaoyu202608/blob/main/20260813-tg1m6q2h.md'>特朗普政府推进加密货币新规，关键法案在国会受阻</a></p>
+
+<h3>特朗普称白宫立法事务主任布雷德将离职</h3>
+
+<p><a href='https://github.com/dmwke4-ops/meishi202608/blob/main/20260810-sjlq4i13.md'>特朗普称白宫立法事务主任布雷德将离职</a></p>
+
+<h3>3.19亿股新股解禁，SpaceX股价回落至发行价附近</h3>
+
+<p><a href='https://github.com/dmwke4-ops/shishang202608/blob/main/20260807-lp03slqn.md'>3.19亿股新股解禁，SpaceX股价回落至发行价附近</a></p>
+
+<h3>“别太贪婪”——40年债市老将把风险敞口降至十余年最低</h3>
+
+<p><a href='https://github.com/dmwke4-ops/xinwen202608/blob/main/0521_874.md'>“别太贪婪”——40年债市老将把风险敞口降至十余年最低</a></p>
+
+<h3>如何扑灭由二战遗留弹药助长的野火？试试无人驾驶坦克</h3>
+
+<p><a href='https://github.com/dmwke4-ops/youxi202608/blob/main/20260817-z9k8aozb.md'>如何扑灭由二战遗留弹药助长的野火？试试无人驾驶坦克</a></p>
+
+<h3>折叠屏iPad项目流产：苹果最后还是选择砍掉</h3>
+
+<p><a href='https://github.com/ero9esx-creator/caijing202608/blob/main/20260815-75ofzsg0.md'>折叠屏iPad项目流产：苹果最后还是选择砍掉</a></p>
+
+<h3>沃尔玛美区同店销售六年最慢，股价重挫超9%</h3>
+
+<p><a href='https://github.com/ero9esx-creator/fangchan202608/blob/main/20260813-8xbjd7hz.md'>沃尔玛美区同店销售六年最慢，股价重挫超9%</a></p>
+
+<h3>欧洲股市小幅收低 延续2023年以来最长连跌走势</h3>
+
+<p><a href='https://github.com/ero9esx-creator/jiaoyu202608/blob/main/20260809-zurl2you.md'>欧洲股市小幅收低 延续2023年以来最长连跌走势</a></p>
+
+<h3>大华股份2026半年报出炉</h3>
+
+<p><a href='https://github.com/ero9esx-creator/meishi202608/blob/main/20260806-zts3jpfo.md'>大华股份2026半年报出炉</a></p>
+
+<h3>美国住房负担能力指数自2023年以来首次恶化</h3>
+
+<p><a href='https://github.com/ero9esx-creator/shenghuo202608/blob/main/20260820-zul04uo6.md'>美国住房负担能力指数自2023年以来首次恶化</a></p>
+
+<h3>沃尔玛美区同店销售六年最慢，股价重挫超9%</h3>
+
+<p><a href='https://github.com/ero9esx-creator/wenhua202608/blob/main/20260816-tmsmmv92.md'>沃尔玛美区同店销售六年最慢，股价重挫超9%</a></p>
+
+<h3>南钢股份上半年营收311.3亿元 净利同比降9.64%</h3>
+
+<p><a href='https://github.com/ero9esx-creator/youxi202608/blob/main/20260814-shy5sz28.md'>南钢股份上半年营收311.3亿元 净利同比降9.64%</a></p>
+
+<h3>花旗将美元短期看法转为看空，此前已就美债回购风险发出警告</h3>
+
+<p><a href='https://github.com/fatimarubytiphxr0019-glitch/caodi202608/blob/main/20260812-oz6e9sgr.md'>花旗将美元短期看法转为看空，此前已就美债回购风险发出警告</a></p>
+
+<h3>阿克托斯资本同意收购亚特兰大猎鹰队10%股份，球队估值106亿美元</h3>
+
+<p><a href='https://github.com/fatimarubytiphxr0019-glitch/wenhua202608/blob/main/20260801_ouk23.md'>阿克托斯资本同意收购亚特兰大猎鹰队10%股份，球队估值106亿美元</a></p>
+
+<h3>美国债市：国债下跌，曲线中段与长端领跌，回吐回购公告部分涨幅</h3>
+
+<p><a href='https://github.com/fatimarubytiphxr0019-glitch/caodi202608/blob/main/20260821-ns33s1x8.md'>美国债市：国债下跌，曲线中段与长端领跌，回吐回购公告部分涨幅</a></p>
+
+<h3>Anthropic首次公开募股规模料追平甚至赶超SpaceX创下的纪录</h3>
+
+<p><a href='https://github.com/johannaamandagxsalk7151-pixel/shenghuo202608/blob/main/20260821-77fdxno6.md'>Anthropic首次公开募股规模料追平甚至赶超SpaceX创下的纪录</a></p>
+
+<h3>债券市场与六旗乐园的相通之处</h3>
+
+<p><a href='https://github.com/andinoaopmzqx2364-cpu/guangming202608/blob/main/20260821-yt7uj36x.md'>债券市场与六旗乐园的相通之处</a></p>
+
+<h3>小摩走访弗里蒙特：特斯拉故意不加Model Y，Robotaxi赌注押在Cybercab</h3>
+
+<p><a href='https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/20260821-n26crrob.md'>小摩走访弗里蒙特：特斯拉故意不加Model Y，Robotaxi赌注押在Cybercab</a></p>
+
+<h3>申请美国大学的外国学生出现近十年来最大降幅</h3>
+
+<p><a href='https://github.com/b6y02faw-maker/qiche202608/blob/main/20260821-ftqyihqk.md'>申请美国大学的外国学生出现近十年来最大降幅</a></p>
+
+<h3>3.19亿股新股解禁，SpaceX股价回落至发行价附近</h3>
+
+<p><a href='https://github.com/mejiastanle/20260718_13/blob/main/20260821-8is28wnc.md'>3.19亿股新股解禁，SpaceX股价回落至发行价附近</a></p>
+
+<h3>欧洲股市小幅收低 延续2023年以来最长连跌走势</h3>
+
+<p><a href='https://github.com/bernettcoia/20260718_15/blob/main/20260821-ybpsskc8.md'>欧洲股市小幅收低 延续2023年以来最长连跌走势</a></p>
+
+<h3>美国住房负担能力指数自2023年以来首次恶化</h3>
+
+<p><a href='https://github.com/raeganazariahqswbdr1627-cpu/caodi202608/blob/main/20260821-q8iuttjv.md'>美国住房负担能力指数自2023年以来首次恶化</a></p>
+
+<h3>摩根大通警告：财政部加倍回购长债，可能抬升而非压低收益率</h3>
+
+<p><a href='https://github.com/ero9esx-creator/ziran202608/blob/main/20260821-gnk8wplt.md'>摩根大通警告：财政部加倍回购长债，可能抬升而非压低收益率</a></p>
+
+<h3>香港举办“东盟电影节2026” 逾30部佳片促文化交流合作</h3>
+
+<p><a href='https://github.com/johannaamandagxsalk7151-pixel/guangming202608/blob/main/20260821-ubnaj0x9.md'>香港举办“东盟电影节2026” 逾30部佳片促文化交流合作</a></p>
+
+<h3>六国棋手“云端”对弈 重庆武隆“白马山杯”东南亚围棋邀请赛开幕</h3>
+
+<p><a href='https://github.com/andinoaopmzqx2364-cpu/caodi202608/blob/main/20260821-olq6jiep.md'>六国棋手“云端”对弈 重庆武隆“白马山杯”东南亚围棋邀请赛开幕</a></p>
+
+<h3>8月21日美股收盘：长债收益率反弹抹去回购利好，沃尔玛暴跌近9%拖累道指重挫超700点</h3>
+
+<p><a href='https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/20260821-ebse3b44.md'>8月21日美股收盘：长债收益率反弹抹去回购利好，沃尔玛暴跌近9%拖累道指重挫超700点</a></p>
+
+<h3>大体重记者跑采访不再愁？记者实测外骨骼机器人</h3>
+
+<p><a href='https://github.com/b6y02faw-maker/meishi202608/blob/main/20260821-30wpjqkn.md'>大体重记者跑采访不再愁？记者实测外骨骼机器人</a></p>
+
+<h3>如何扑灭由二战遗留弹药助长的野火？试试无人驾驶坦克</h3>
+
+<p><a href='https://github.com/mejiastanle/20260718_11/blob/main/20260821-v5ozu37n.md'>如何扑灭由二战遗留弹药助长的野火？试试无人驾驶坦克</a></p>
+
+<h3>六国棋手“云端”对弈 重庆武隆“白马山杯”东南亚围棋邀请赛开幕</h3>
+
+<p><a href='https://github.com/bernettcoia/20260718_14/blob/main/20260821-lpsfin3m.md'>六国棋手“云端”对弈 重庆武隆“白马山杯”东南亚围棋邀请赛开幕</a></p>
+
+<h3>美国下周将揭晓孤立伊朗经济的计划</h3>
+
+<p><a href='https://github.com/nadialylaouliba3944-blip/ziran202608/blob/main/20260821-b6z04db6.md'>美国下周将揭晓孤立伊朗经济的计划</a></p>
+
+<h3>美财长贝森特在债券市场宣告妥协</h3>
+
+<p><a href='https://github.com/ero9esx-creator/yule202608/blob/main/20260821-22p58mqs.md'>美财长贝森特在债券市场宣告妥协</a></p>
+
+<h3>大体重记者跑采访不再愁？记者实测外骨骼机器人</h3>
+
+<p><a href='https://github.com/johannaamandagxsalk7151-pixel/caodi202608/blob/main/20260821-m427die3.md'>大体重记者跑采访不再愁？记者实测外骨骼机器人</a></p>
+
+<h3>美财长贝森特在债券市场宣告妥协</h3>
+
+<p><a href='https://github.com/adleycatalinawxxnqj0188-byte/ziran202608/blob/main/20260821-6vh8flkp.md'>美财长贝森特在债券市场宣告妥协</a></p>
+
+<h3>美国住房负担能力指数自2023年以来首次恶化</h3>
+
+<p><a href='https://github.com/lindsayawren-sys/ekzno3nz5rl/blob/main/20260821-2fhb2ab6.md'>美国住房负担能力指数自2023年以来首次恶化</a></p>
+
+<h3>餐饮黄牛高价倒卖排号是否涉嫌违法？律师解读来了</h3>
+
+<p><a href='https://github.com/b6y02faw-maker/keji202608/blob/main/20260821-s26eig3d.md'>餐饮黄牛高价倒卖排号是否涉嫌违法？律师解读来了</a></p>
+
+<h3>折叠屏iPad项目流产：苹果最后还是选择砍掉</h3>
+
+<p><a href='https://github.com/mejiastanle/20260718_10/blob/main/20260821-jxpa5v3t.md'>折叠屏iPad项目流产：苹果最后还是选择砍掉</a></p>
+
+<h3>摩根大通警告：财政部加倍回购长债，可能抬升而非压低收益率</h3>
+
+<p><a href='https://github.com/bernettcoia/20260718_13/blob/main/20260821-8my9jkhk.md'>摩根大通警告：财政部加倍回购长债，可能抬升而非压低收益率</a></p>
+
+<h3>美财长贝森特在债券市场宣告妥协</h3>
+
+<p><a href='https://github.com/nadialylaouliba3944-blip/xinwen202608/blob/main/20260821-zv9xjjrh.md'>美财长贝森特在债券市场宣告妥协</a></p>
+
+<h3>申请美国大学的外国学生出现近十年来最大降幅</h3>
+
+<p><a href='https://github.com/ero9esx-creator/yinyue202608/blob/main/20260821-p1dtx865.md'>申请美国大学的外国学生出现近十年来最大降幅</a></p>
+
+<h3>六国棋手“云端”对弈 重庆武隆“白马山杯”东南亚围棋邀请赛开幕</h3>
+
+<p><a href='https://github.com/joannaaarnamjvstl1553-ship-it/ziran202608/blob/main/20260821-9cc2418a.md'>六国棋手“云端”对弈 重庆武隆“白马山杯”东南亚围棋邀请赛开幕</a></p>
+
+<h3>上市公司组织百人“抢公章”？ 海威华芯控制权纠纷升级</h3>
+
+<p><a href='https://github.com/adleycatalinawxxnqj0188-byte/xinwen202608/blob/main/20260821-xuxi9ps8.md'>上市公司组织百人“抢公章”？ 海威华芯控制权纠纷升级</a></p>
+
+<h3>美国住房负担能力指数自2023年以来首次恶化</h3>
+
+<p><a href='https://github.com/lindsayawren-sys/20260718_12/blob/main/20260821-q0c3q9ee.md'>美国住房负担能力指数自2023年以来首次恶化</a></p>
+
+<h3>香港举办“东盟电影节2026” 逾30部佳片促文化交流合作</h3>
+
+<p><a href='https://github.com/b6y02faw-maker/jiaoyu202608/blob/main/20260821-hp75uzs7.md'>香港举办“东盟电影节2026” 逾30部佳片促文化交流合作</a></p>
+
+<h3>圣路易斯联储行长谈及债市动荡 称市场并未质疑美联储信誉</h3>
+
+<p><a href='https://github.com/mejiastanle/20260718_09/blob/main/20260821-7j0os4kw.md'>圣路易斯联储行长谈及债市动荡 称市场并未质疑美联储信誉</a></p>
+
+<h3>美国财政部长贝森特称美债回购操作单次规模可能超过40亿美元</h3>
+
+<p><a href='https://github.com/bernettcoia/20260718_11/blob/main/20260821-wzmu869f.md'>美国财政部长贝森特称美债回购操作单次规模可能超过40亿美元</a></p>
+
+<h3>欧洲股市小幅收低 延续2023年以来最长连跌走势</h3>
+
+<p><a href='https://github.com/nadialylaouliba3944-blip/wenhua202608/blob/main/20260821-pvuiif9m.md'>欧洲股市小幅收低 延续2023年以来最长连跌走势</a></p>
+
+<h3>债券收益率是“房间里的大象” 股票投资者却对其视而不见</h3>
+
+<p><a href='https://github.com/ero9esx-creator/xinwen202608/blob/main/20260821-dp1zf88f.md'>债券收益率是“房间里的大象” 股票投资者却对其视而不见</a></p>
+
+<h3>欧洲债市：德国国债回吐涨幅 英国国债与美国国债同步下跌</h3>
+
+<p><a href='https://github.com/joannaaarnamjvstl1553-ship-it/xinwen202608/blob/main/20260821-v5roq6mm.md'>欧洲债市：德国国债回吐涨幅 英国国债与美国国债同步下跌</a></p>
+
+<h3>摩根大通警告：财政部加倍回购长债，可能抬升而非压低收益率</h3>
+
+<p><a href='https://github.com/adleycatalinawxxnqj0188-byte/wenhua202608/blob/main/20260821-pjm9lqcv.md'>摩根大通警告：财政部加倍回购长债，可能抬升而非压低收益率</a></p>
+
+<h3>餐饮黄牛高价倒卖排号是否涉嫌违法？律师解读来了</h3>
+
+<p><a href='https://github.com/lindsayawren-sys/20260718_11/blob/main/20260821-frpjmrxk.md'>餐饮黄牛高价倒卖排号是否涉嫌违法？律师解读来了</a></p>
+
+<h3>美财长贝森特在债券市场宣告妥协</h3>
+
+<p><a href='https://github.com/b6y02faw-maker/jiankang202608/blob/main/20260821-5fafuv7k.md'>美财长贝森特在债券市场宣告妥协</a></p>
+
+<h3>胡塞武装称对沙特发动无人机袭击</h3>
+
+<p><a href='https://github.com/mejiastanle/20260718_07/blob/main/20260821-xemul0u4.md'>胡塞武装称对沙特发动无人机袭击</a></p>
+
+<h3>特朗普称白宫立法事务主任布雷德将离职</h3>
+
+<p><a href='https://github.com/bernettcoia/20260718_10/blob/main/20260821-lof3ckzs.md'>特朗普称白宫立法事务主任布雷德将离职</a></p>
+
+<h3>债券收益率是“房间里的大象” 股票投资者却对其视而不见</h3>
+
+<p><a href='https://github.com/nadialylaouliba3944-blip/shenghuo202608/blob/main/20260821-bfcvtp1e.md'>债券收益率是“房间里的大象” 股票投资者却对其视而不见</a></p>
+
+<h3>如何扑灭由二战遗留弹药助长的野火？试试无人驾驶坦克</h3>
+
+<p><a href='https://github.com/ero9esx-creator/wenhua202608/blob/main/20260821-1ex5emle.md'>如何扑灭由二战遗留弹药助长的野火？试试无人驾驶坦克</a></p>
+
+<h3>摩根大通警告：财政部加倍回购长债，可能抬升而非压低收益率</h3>
+
+<p><a href='https://github.com/joannaaarnamjvstl1553-ship-it/wenhua202608/blob/main/20260821-j7ul4jby.md'>摩根大通警告：财政部加倍回购长债，可能抬升而非压低收益率</a></p>
+
+<h3>医院通报“孕妇因医生疏忽误服液体”：涉事医生已暂停执业</h3>
+
+<p><a href='https://github.com/adleycatalinawxxnqj0188-byte/shenghuo202608/blob/main/20260821-aop0okhx.md'>医院通报“孕妇因医生疏忽误服液体”：涉事医生已暂停执业</a></p>
+
+<h3>欧洲股市小幅收低 延续2023年以来最长连跌走势</h3>
+
+<p><a href='https://github.com/lindsayawren-sys/20260718_10/blob/main/20260821-0erzw7je.md'>欧洲股市小幅收低 延续2023年以来最长连跌走势</a></p>
+
+<h3>8月21日外盘头条：贝森特称美国大概率不会重启大规模对伊作战 沃尔玛股价重挫超9%</h3>
+
+<p><a href='https://github.com/b6y02faw-maker/fangchan202608/blob/main/20260821-oisr0rup.md'>8月21日外盘头条：贝森特称美国大概率不会重启大规模对伊作战 沃尔玛股价重挫超9%</a></p>
+
+<h3>英国银行业巨头联名致信警告，不要进一步提高税收</h3>
+
+<p><a href='https://github.com/mejiastanle/20260718_06/blob/main/20260821-grxwom96.md'>英国银行业巨头联名致信警告，不要进一步提高税收</a></p>
+
+<h3>大华股份2026半年报出炉</h3>
+
+<p><a href='https://github.com/bernettcoia/20260718_09/blob/main/20260821-7q3xjuub.md'>大华股份2026半年报出炉</a></p>
+
+<h3>德国今年4月以来约有1.4万人因高温相关因素死亡</h3>
+
+<p><a href='https://github.com/nadialylaouliba3944-blip/guangming202608/blob/main/20260821-z44knix1.md'>德国今年4月以来约有1.4万人因高温相关因素死亡</a></p>
+
+<h3>债券市场与六旗乐园的相通之处</h3>
+
+<p><a href='https://github.com/ero9esx-creator/shishang202608/blob/main/20260821-std33wpi.md'>债券市场与六旗乐园的相通之处</a></p>
+
+<h3>摩根大通警告：财政部加倍回购长债，可能抬升而非压低收益率</h3>
+
+<p><a href='https://github.com/joannaaarnamjvstl1553-ship-it/shenghuo202608/blob/main/20260821-5w04r0da.md'>摩根大通警告：财政部加倍回购长债，可能抬升而非压低收益率</a></p>
+
+<h3>德国今年4月以来约有1.4万人因高温相关因素死亡</h3>
+
+<p><a href='https://github.com/adleycatalinawxxnqj0188-byte/guangming202608/blob/main/20260821-z265l9y8.md'>德国今年4月以来约有1.4万人因高温相关因素死亡</a></p>
+
+<h3>歌剧《卡门》中文版厦门上演 97岁指挥家郑小瑛执棒</h3>
+
+<p><a href='https://github.com/lindsayawren-sys/20260718_08/blob/main/20260821-pfdggomj.md'>歌剧《卡门》中文版厦门上演 97岁指挥家郑小瑛执棒</a></p>
+
+<h3>美军中央司令部称“华盛顿”号航母已部署在中东</h3>
+
+<p><a href='https://github.com/b6y02faw-maker/dianying202608/blob/main/20260821-enfbk4du.md'>美军中央司令部称“华盛顿”号航母已部署在中东</a></p>
+
+<h3>美国财政部长贝森特称美债回购操作单次规模可能超过40亿美元</h3>
+
+<p><a href='https://github.com/mejiastanle/20260718_05/blob/main/20260821-41s2950h.md'>美国财政部长贝森特称美债回购操作单次规模可能超过40亿美元</a></p>
+
+<h3>贝森特称财政部债券回购规模或将超过40亿美元</h3>
+
+<p><a href='https://github.com/bernettcoia/20260718_07/blob/main/20260821-vqj0d1pu.md'>贝森特称财政部债券回购规模或将超过40亿美元</a></p>
+
+<h3>上市公司组织百人“抢公章”？ 海威华芯控制权纠纷升级</h3>
+
+<p><a href='https://github.com/nadialylaouliba3944-blip/caodi202608/blob/main/20260821-lntpf4lc.md'>上市公司组织百人“抢公章”？ 海威华芯控制权纠纷升级</a></p>
+
+<h3>贝森特称可能进一步加大美债回购力度 并将公布新的财政举措</h3>
+
+<p><a href='https://github.com/ero9esx-creator/shenghuo202608/blob/main/20260821-bmvugvzf.md'>贝森特称可能进一步加大美债回购力度 并将公布新的财政举措</a></p>
+
+<h3>歌剧《卡门》中文版厦门上演 97岁指挥家郑小瑛执棒</h3>
+
+<p><a href='https://github.com/joannaaarnamjvstl1553-ship-it/guangming202608/blob/main/20260821-uwwlf2cq.md'>歌剧《卡门》中文版厦门上演 97岁指挥家郑小瑛执棒</a></p>
+
+<h3>美国住房负担能力指数自2023年以来首次恶化</h3>
+
+<p><a href='https://github.com/adleycatalinawxxnqj0188-byte/caodi202608/blob/main/20260821-k2wtoc27.md'>美国住房负担能力指数自2023年以来首次恶化</a></p>
 
 <h3>伊朗外交部谴责美国对伊实施新一轮经济制裁</h3>
 
-<p><a href='https://github.com/adaleefayeocgzyd5066-lang/caodi202608/blob/main/20260821-wnfc8iew.md'>伊朗外交部谴责美国对伊实施新一轮经济制裁</a></p>
+<p><a href='https://github.com/lindsayawren-sys/20260718_07/blob/main/20260821-awwubonp.md'>伊朗外交部谴责美国对伊实施新一轮经济制裁</a></p>
 
-<h3>住房市场持续承压，Hovnanian转亏</h3>
+<h3>债券市场与六旗乐园的相通之处</h3>
 
-<p><a href='https://github.com/kategeorgiaxtgxfl9771-lab/yinyue202608/blob/main/20260821-izcvfm2k.md'>住房市场持续承压，Hovnanian转亏</a></p>
-
-<h3>大体重记者跑采访不再愁？记者实测外骨骼机器人</h3>
-
-<p><a href='https://github.com/annikaoakleighzinjiu1817-prog/xinwen202608/blob/main/20260821-ajv04rhk.md'>大体重记者跑采访不再愁？记者实测外骨骼机器人</a></p>
-
-<h3>贝森特：美国加大对伊朗经济施压，大概率不会重启大规模对伊作战</h3>
-
-<p><a href='https://github.com/linhh234/20260718_08/blob/main/20260821-3tvweuwf.md'>贝森特：美国加大对伊朗经济施压，大概率不会重启大规模对伊作战</a></p>
-
-<h3>歌剧《卡门》中文版厦门上演 97岁指挥家郑小瑛执棒</h3>
-
-<p><a href='https://github.com/bdor2v-code/caodi202608/blob/main/20260821-pzim0vth.md'>歌剧《卡门》中文版厦门上演 97岁指挥家郑小瑛执棒</a></p>
-
-<h3>杰克逊霍尔前瞻：沃什首次主席演讲，市场要的是反应函数，不是支付主题</h3>
-
-<p><a href='https://github.com/mikaylaryleeeschkq9257-dot/shenghuo202608/blob/main/20260821-ksgj3fwn.md'>杰克逊霍尔前瞻：沃什首次主席演讲，市场要的是反应函数，不是支付主题</a></p>
-
-<h3>上市公司组织百人“抢公章”？ 海威华芯控制权纠纷升级</h3>
-
-<p><a href='https://github.com/dmwke4-ops/jiaoyu202608/blob/main/20260821-bcyd2i2t.md'>上市公司组织百人“抢公章”？ 海威华芯控制权纠纷升级</a></p>
-
-<h3>如何扑灭由二战遗留弹药助长的野火？试试无人驾驶坦克</h3>
-
-<p><a href='https://github.com/ramonaviviansbkhfb9905-create/wenhua202608/blob/main/20260821-12od7tkj.md'>如何扑灭由二战遗留弹药助长的野火？试试无人驾驶坦克</a></p>
-
-<h3>大团联袂！舞蹈诗剧《只此青绿》千场大秀金秋亮相“水立方”</h3>
-
-<p><a href='https://github.com/helenaddysonkahuuj0793-create/keji202608/blob/main/20260821-ruzvbl4l.md'>大团联袂！舞蹈诗剧《只此青绿》千场大秀金秋亮相“水立方”</a></p>
-
-<h3>英国银行业巨头联名致信警告，不要进一步提高税收</h3>
-
-<p><a href='https://github.com/kategeorgiaxtgxfl9771-lab/xinwen202608/blob/main/20260821-b1bwyzqk.md'>英国银行业巨头联名致信警告，不要进一步提高税收</a></p>
-
-<h3>A股缩量普涨，释放什么信号？</h3>
-
-<p><a href='https://github.com/annikaoakleighzinjiu1817-prog/shenghuo202608/blob/main/20260821-ydsa9o04.md'>A股缩量普涨，释放什么信号？</a></p>
-
-<h3>股价跌停，罗普斯金独家回应：公司随行就市购置原材料</h3>
-
-<p><a href='https://github.com/linhh234/20260718_06/blob/main/20260821-l7u2c2ev.md'>股价跌停，罗普斯金独家回应：公司随行就市购置原材料</a></p>
-
-<h3>旧金山联储行长戴利认为美债市场显示出对美联储政策立场的信任</h3>
-
-<p><a href='https://github.com/bdor2v-code/caijing202608/blob/main/20260821-dkacsg7b.md'>旧金山联储行长戴利认为美债市场显示出对美联储政策立场的信任</a></p>
-
-<h3>折叠屏iPad项目流产：苹果最后还是选择砍掉</h3>
-
-<p><a href='https://github.com/mikaylaryleeeschkq9257-dot/keji202608/blob/main/20260821-6dl7kg1j.md'>折叠屏iPad项目流产：苹果最后还是选择砍掉</a></p>
-
-<h3>大华股份2026半年报出炉</h3>
-
-<p><a href='https://github.com/dmwke4-ops/guangming202608/blob/main/20260821-xznznaio.md'>大华股份2026半年报出炉</a></p>
-
-<h3>百余青少年“骑”聚北京延庆比拼竞速</h3>
-
-<p><a href='https://github.com/ramonaviviansbkhfb9905-create/keji202608/blob/main/20260821-ta63nro5.md'>百余青少年“骑”聚北京延庆比拼竞速</a></p>
-
-<h3>上市公司组织百人“抢公章”？ 海威华芯控制权纠纷升级</h3>
-
-<p><a href='https://github.com/helenaddysonkahuuj0793-create/guangming202608/blob/main/20260821-dqfmqpzv.md'>上市公司组织百人“抢公章”？ 海威华芯控制权纠纷升级</a></p>
-
-<h3>六国棋手“云端”对弈 重庆武隆“白马山杯”东南亚围棋邀请赛开幕</h3>
-
-<p><a href='https://github.com/kategeorgiaxtgxfl9771-lab/shenghuo202608/blob/main/20260821-xat608xd.md'>六国棋手“云端”对弈 重庆武隆“白马山杯”东南亚围棋邀请赛开幕</a></p>
-
-<h3>美财长贝森特在债券市场宣告妥协</h3>
-
-<p><a href='https://github.com/annikaoakleighzinjiu1817-prog/keji202608/blob/main/20260821-oa5nvpma.md'>美财长贝森特在债券市场宣告妥协</a></p>
-
-<h3>百余青少年“骑”聚北京延庆比拼竞速</h3>
-
-<p><a href='https://github.com/linhh234/20260718_05/blob/main/20260821-hiy5sb1g.md'>百余青少年“骑”聚北京延庆比拼竞速</a></p>
-
-<h3>英国银行业巨头联名致信警告，不要进一步提高税收</h3>
-
-<p><a href='https://github.com/b6y02faw-maker/ziran202608/blob/main/20260821-3077799y.md'>英国银行业巨头联名致信警告，不要进一步提高税收</a></p>
-
-<h3>折叠屏iPad项目流产：苹果最后还是选择砍掉</h3>
-
-<p><a href='https://github.com/mikaylaryleeeschkq9257-dot/caodi202608/blob/main/20260821-sugs86bx.md'>折叠屏iPad项目流产：苹果最后还是选择砍掉</a></p>
-
-<h3>大体重记者跑采访不再愁？记者实测外骨骼机器人</h3>
-
-<p><a href='https://github.com/dmwke4-ops/fangchan202608/blob/main/20260821-mx0zgnrt.md'>大体重记者跑采访不再愁？记者实测外骨骼机器人</a></p>
-
-<h3>美联储7月纪要：三人已投票加息，多人警告“通胀若不降就要收紧”</h3>
-
-<p><a href='https://github.com/ramonaviviansbkhfb9905-create/guangming202608/blob/main/20260821-bzw7bjri.md'>美联储7月纪要：三人已投票加息，多人警告“通胀若不降就要收紧”</a></p>
-
-<h3>美国“救市”次日，美债又“崩”了</h3>
-
-<p><a href='https://github.com/helenaddysonkahuuj0793-create/caodi202608/blob/main/20260821-315bis08.md'>美国“救市”次日，美债又“崩”了</a></p>
-
-<h3>AI数据中心引发普遍不满：从商业广告到大选，抗议之声四处蔓延</h3>
-
-<p><a href='https://github.com/kategeorgiaxtgxfl9771-lab/keji202608/blob/main/20260821-fv2qj1fr.md'>AI数据中心引发普遍不满：从商业广告到大选，抗议之声四处蔓延</a></p>
-
-<h3>贝森特：美国加大对伊朗经济施压，大概率不会重启大规模对伊作战</h3>
-
-<p><a href='https://github.com/annikaoakleighzinjiu1817-prog/guangming202608/blob/main/20260821-bbc9s07w.md'>贝森特：美国加大对伊朗经济施压，大概率不会重启大规模对伊作战</a></p>
-
-<h3>贝森特称财政部债券回购规模或将超过40亿美元</h3>
-
-<p><a href='https://github.com/linhh234/20260718_04/blob/main/20260821-120faixi.md'>贝森特称财政部债券回购规模或将超过40亿美元</a></p>
+<p><a href='https://github.com/b6y02faw-maker/caodi202608/blob/main/20260821-2hbcyeal.md'>债券市场与六旗乐园的相通之处</a></p>
 
 <h3>纳斯达克100指数恐五连跌 油价、收益率攀升令美股承压</h3>
 
-<p><a href='https://github.com/b6y02faw-maker/youxi202608/blob/main/20260821-s8n2zube.md'>纳斯达克100指数恐五连跌 油价、收益率攀升令美股承压</a></p>
+<p><a href='https://github.com/mejiastanle/20260718_03/blob/main/20260821-rcnayw7w.md'>纳斯达克100指数恐五连跌 油价、收益率攀升令美股承压</a></p>
 
-<h3>海拔3500米巅峰对决！拉萨消防比武赛场超燃</h3>
+<h3>特朗普称白宫立法事务主任布雷德将离职</h3>
 
-<p><a href='https://github.com/mejiastanle/msdfe52gs/blob/main/20260821-hcxpy4u0.md'>海拔3500米巅峰对决！拉萨消防比武赛场超燃</a></p>
-
-<h3>A股缩量普涨，释放什么信号？</h3>
-
-<p><a href='https://github.com/dmwke4-ops/dianying202608/blob/main/20260821-a1jdzya8.md'>A股缩量普涨，释放什么信号？</a></p>
-
-<h3>折叠屏iPad项目流产：苹果最后还是选择砍掉</h3>
-
-<p><a href='https://github.com/ramonaviviansbkhfb9905-create/caodi202608/blob/main/20260821-0dk0wbh9.md'>折叠屏iPad项目流产：苹果最后还是选择砍掉</a></p>
-
-<h3>英国银行业巨头联名致信警告，不要进一步提高税收</h3>
-
-<p><a href='https://github.com/fatimarubytiphxr0019-glitch/yinyue202608/blob/main/20260821-sms51026.md'>英国银行业巨头联名致信警告，不要进一步提高税收</a></p>
-
-<h3>六国棋手“云端”对弈 重庆武隆“白马山杯”东南亚围棋邀请赛开幕</h3>
-
-<p><a href='https://github.com/kategeorgiaxtgxfl9771-lab/guangming202608/blob/main/20260821-9787hc92.md'>六国棋手“云端”对弈 重庆武隆“白马山杯”东南亚围棋邀请赛开幕</a></p>
-
-<h3>A股缩量普涨，释放什么信号？</h3>
-
-<p><a href='https://github.com/andinoaopmzqx2364-cpu/ziran202608/blob/main/20260821-yahf58wb.md'>A股缩量普涨，释放什么信号？</a></p>
-
-<h3>香港举办“东盟电影节2026” 逾30部佳片促文化交流合作</h3>
-
-<p><a href='https://github.com/linhh234/20260718_02/blob/main/20260821-r0a9ue0q.md'>香港举办“东盟电影节2026” 逾30部佳片促文化交流合作</a></p>
-
-<h3>上市公司组织百人“抢公章”？ 海威华芯控制权纠纷升级</h3>
-
-<p><a href='https://github.com/b6y02faw-maker/yinyue202608/blob/main/20260821-fgvkl56m.md'>上市公司组织百人“抢公章”？ 海威华芯控制权纠纷升级</a></p>
-
-<h3>医院通报“孕妇因医生疏忽误服液体”：涉事医生已暂停执业</h3>
-
-<p><a href='https://github.com/mejiastanle/20260718_19/blob/main/20260821-5pl3yh48.md'>医院通报“孕妇因医生疏忽误服液体”：涉事医生已暂停执业</a></p>
-
-<h3>香港举办“东盟电影节2026” 逾30部佳片促文化交流合作</h3>
-
-<p><a href='https://github.com/dmwke4-ops/caijing202608/blob/main/20260821-u7f54x5x.md'>香港举办“东盟电影节2026” 逾30部佳片促文化交流合作</a></p>
-
-<h3>如何扑灭由二战遗留弹药助长的野火？试试无人驾驶坦克</h3>
-
-<p><a href='https://github.com/raeganazariahqswbdr1627-cpu/yinyue202608/blob/main/20260821-lk2cihb8.md'>如何扑灭由二战遗留弹药助长的野火？试试无人驾驶坦克</a></p>
-
-<h3>2026年两岸关系研讨会在武汉开幕</h3>
-
-<p><a href='https://github.com/fatimarubytiphxr0019-glitch/xinwen202608/blob/main/20260821-haf7owhb.md'>2026年两岸关系研讨会在武汉开幕</a></p>
-
-<h3>美国“救市”次日，美债又“崩”了</h3>
-
-<p><a href='https://github.com/johannaamandagxsalk7151-pixel/ziran202608/blob/main/20260821-vah1av5u.md'>美国“救市”次日，美债又“崩”了</a></p>
-
-<h3>美国“救市”次日，美债又“崩”了</h3>
-
-<p><a href='https://github.com/andinoaopmzqx2364-cpu/yinyue202608/blob/main/20260821-khv7ov8n.md'>美国“救市”次日，美债又“崩”了</a></p>
-
-<h3>美国“救市”次日，美债又“崩”了</h3>
-
-<p><a href='https://github.com/linhh234/20260718_01/blob/main/20260821-g4kt5irn.md'>美国“救市”次日，美债又“崩”了</a></p>
-
-<h3>申请美国大学的外国学生出现近十年来最大降幅</h3>
-
-<p><a href='https://github.com/b6y02faw-maker/xinwen202608/blob/main/20260821-7dv9wse2.md'>申请美国大学的外国学生出现近十年来最大降幅</a></p>
-
-<h3>胡塞武装称对沙特发动无人机袭击</h3>
-
-<p><a href='https://github.com/mejiastanle/20260718_17/blob/main/20260821-stdwxxfs.md'>胡塞武装称对沙特发动无人机袭击</a></p>
-
-<h3>美国下周将揭晓孤立伊朗经济的计划</h3>
-
-<p><a href='https://github.com/bernettcoia/20260718_20/blob/main/20260821-ekqgmv3c.md'>美国下周将揭晓孤立伊朗经济的计划</a></p>
-
-<h3>餐饮黄牛高价倒卖排号是否涉嫌违法？律师解读来了</h3>
-
-<p><a href='https://github.com/raeganazariahqswbdr1627-cpu/xinwen202608/blob/main/20260821-7mj4phh6.md'>餐饮黄牛高价倒卖排号是否涉嫌违法？律师解读来了</a></p>
-
-<h3>六国棋手“云端”对弈 重庆武隆“白马山杯”东南亚围棋邀请赛开幕</h3>
-
-<p><a href='https://github.com/fatimarubytiphxr0019-glitch/wenhua202608/blob/main/20260821-6i4bjg5o.md'>六国棋手“云端”对弈 重庆武隆“白马山杯”东南亚围棋邀请赛开幕</a></p>
-
-<h3>百余青少年“骑”聚北京延庆比拼竞速</h3>
-
-<p><a href='https://github.com/johannaamandagxsalk7151-pixel/yinyue202608/blob/main/20260821-lswvrq7x.md'>百余青少年“骑”聚北京延庆比拼竞速</a></p>
-
-<h3>大华股份2026半年报出炉</h3>
-
-<p><a href='https://github.com/andinoaopmzqx2364-cpu/xinwen202608/blob/main/20260821-9ww3ca46.md'>大华股份2026半年报出炉</a></p>
-
-<h3>大华股份2026半年报出炉</h3>
-
-<p><a href='https://github.com/lindsayawren-sys/test555/blob/main/20260821-475f1vll.md'>大华股份2026半年报出炉</a></p>
-
-<h3>债券市场与六旗乐园的相通之处</h3>
-
-<p><a href='https://github.com/b6y02faw-maker/tiyu202608/blob/main/20260821-u6dkmt21.md'>债券市场与六旗乐园的相通之处</a></p>
-
-<h3>海拔3500米巅峰对决！拉萨消防比武赛场超燃</h3>
-
-<p><a href='https://github.com/mejiastanle/20260718_16/blob/main/20260821-ijk1g5a8.md'>海拔3500米巅峰对决！拉萨消防比武赛场超燃</a></p>
-
-<h3>贝森特称财政部债券回购规模或将超过40亿美元</h3>
-
-<p><a href='https://github.com/bernettcoia/20260718_19/blob/main/20260821-9fifk531.md'>贝森特称财政部债券回购规模或将超过40亿美元</a></p>
-
-<h3>英国银行业巨头联名致信警告，不要进一步提高税收</h3>
-
-<p><a href='https://github.com/raeganazariahqswbdr1627-cpu/shenghuo202608/blob/main/20260821-zydrxln7.md'>英国银行业巨头联名致信警告，不要进一步提高税收</a></p>
-
-<h3>旧金山联储行长戴利认为美债市场显示出对美联储政策立场的信任</h3>
-
-<p><a href='https://github.com/fatimarubytiphxr0019-glitch/keji202608/blob/main/20260821-q3m8yf35.md'>旧金山联储行长戴利认为美债市场显示出对美联储政策立场的信任</a></p>
-
-<h3>申请美国大学的外国学生出现近十年来最大降幅</h3>
-
-<p><a href='https://github.com/johannaamandagxsalk7151-pixel/xinwen202608/blob/main/20260821-7fcexjhx.md'>申请美国大学的外国学生出现近十年来最大降幅</a></p>
-
-<h3>南钢股份上半年营收311.3亿元 净利同比降9.64%</h3>
-
-<p><a href='https://github.com/andinoaopmzqx2364-cpu/shenghuo202608/blob/main/20260821-vg23hug7.md'>南钢股份上半年营收311.3亿元 净利同比降9.64%</a></p>
-
-<h3>受汽油和柴油拉动，加拿大7月生产者价格上涨</h3>
-
-<p><a href='https://github.com/lindsayawren-sys/mmiaoenqa1/blob/main/20260821-p8w7f3sf.md'>受汽油和柴油拉动，加拿大7月生产者价格上涨</a></p>
+<p><a href='https://github.com/bernettcoia/20260718_06/blob/main/20260821-ikh8xzpg.md'>特朗普称白宫立法事务主任布雷德将离职</a></p>
 
 <h3>德国今年4月以来约有1.4万人因高温相关因素死亡</h3>
 
-<p><a href='https://github.com/b6y02faw-maker/shishang202608/blob/main/20260821-ghysn4w8.md'>德国今年4月以来约有1.4万人因高温相关因素死亡</a></p>
-
-<h3>这家“小巨人”冲刺IPO关键时刻，第一大供应商离奇注销！</h3>
-
-<p><a href='https://github.com/mejiastanle/20260718_15/blob/main/20260821-8i30mcvr.md'>这家“小巨人”冲刺IPO关键时刻，第一大供应商离奇注销！</a></p>
-
-<h3>旧金山联储行长戴利认为美债市场显示出对美联储政策立场的信任</h3>
-
-<p><a href='https://github.com/bernettcoia/20260718_17/blob/main/20260821-ubo3hm66.md'>旧金山联储行长戴利认为美债市场显示出对美联储政策立场的信任</a></p>
-
-<h3>美军中央司令部称“华盛顿”号航母已部署在中东</h3>
-
-<p><a href='https://github.com/raeganazariahqswbdr1627-cpu/keji202608/blob/main/20260821-oqwfg3f9.md'>美军中央司令部称“华盛顿”号航母已部署在中东</a></p>
+<p><a href='https://github.com/miot0t-create/ziran202608/blob/main/20260821-6x3g1g9y.md'>德国今年4月以来约有1.4万人因高温相关因素死亡</a></p>
 
 <h3>大华股份2026半年报出炉</h3>
 
-<p><a href='https://github.com/fatimarubytiphxr0019-glitch/guangming202608/blob/main/20260821-fs71vllk.md'>大华股份2026半年报出炉</a></p>
+<p><a href='https://github.com/ero9esx-creator/qiche202608/blob/main/20260821-0obdi2ye.md'>大华股份2026半年报出炉</a></p>
 
-<h3>大团联袂！舞蹈诗剧《只此青绿》千场大秀金秋亮相“水立方”</h3>
+<h3>美国住房负担能力指数自2023年以来首次恶化</h3>
 
-<p><a href='https://github.com/johannaamandagxsalk7151-pixel/shenghuo202608/blob/main/20260821-x742twe2.md'>大团联袂！舞蹈诗剧《只此青绿》千场大秀金秋亮相“水立方”</a></p>
+<p><a href='https://github.com/ticeilohoiyoh-afk/yinyue202607/blob/main/20260821-pewaac5w.md'>美国住房负担能力指数自2023年以来首次恶化</a></p>
 
-<h3>杰克逊霍尔前瞻：沃什首次主席演讲，市场要的是反应函数，不是支付主题</h3>
+<h3>贝森特称可能进一步加大美债回购力度 并将公布新的财政举措</h3>
 
-<p><a href='https://github.com/andinoaopmzqx2364-cpu/keji202608/blob/main/20260821-nf89yfb6.md'>杰克逊霍尔前瞻：沃什首次主席演讲，市场要的是反应函数，不是支付主题</a></p>
+<p><a href='https://github.com/joannaaarnamjvstl1553-ship-it/caodi202608/blob/main/20260821-jdi2p9t3.md'>贝森特称可能进一步加大美债回购力度 并将公布新的财政举措</a></p>
 
-<h3>阿克托斯资本同意收购亚特兰大猎鹰队10%股份，球队估值106亿美元</h3>
+<h3>8月21日美股成交额前20：美光收涨3.97%，公司宣布成立Micron Research Labs，计划未来十年投入100亿美元</h3>
 
-<p><a href='https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/20260821-bc663en9.md'>阿克托斯资本同意收购亚特兰大猎鹰队10%股份，球队估值106亿美元</a></p>
-
-<h3>迪尔公司营收攀升，利润实现增长</h3>
-
-<p><a href='https://github.com/b6y02faw-maker/shenghuo202608/blob/main/20260821-4mz2foaf.md'>迪尔公司营收攀升，利润实现增长</a></p>
-
-<h3>特朗普称白宫立法事务主任布雷德将离职</h3>
-
-<p><a href='https://github.com/bernettcoia/20260718_19/blob/main/20260807-91gfx5sv.md'>特朗普称白宫立法事务主任布雷德将离职</a></p>
-
-<h3>14国华裔青少年陕西研学之旅在西安落幕</h3>
-
-<p><a href='https://github.com/dmwke4-ops/keji202608/blob/main/0507_122.md'>14国华裔青少年陕西研学之旅在西安落幕</a></p>
-
-<h3>美国下周将揭晓孤立伊朗经济的计划</h3>
-
-<p><a href='https://github.com/dmwke4-ops/yinyue202608/blob/main/0507_351.md'>美国下周将揭晓孤立伊朗经济的计划</a></p>
-
-<h3>阿里财报,透露AI新进展!</h3>
-
-<p><a href='https://github.com/ero9esx-creator/jiankang202608/blob/main/0507_532.md'>阿里财报,透露AI新进展!</a></p>
-
-<h3>股价跌停，罗普斯金独家回应：公司随行就市购置原材料</h3>
-
-<p><a href='https://github.com/ero9esx-creator/wenhua202608/blob/main/0507_828.md'>股价跌停，罗普斯金独家回应：公司随行就市购置原材料</a></p>
-
-<h3>大华股份2026半年报出炉</h3>
-
-<p><a href='https://github.com/fatimarubytiphxr0019-glitch/shenghuo202608/blob/main/20260816-04f330fh.md'>大华股份2026半年报出炉</a></p>
-
-<h3>大华股份2026半年报出炉</h3>
-
-<p><a href='https://github.com/helenaddysonkahuuj0793-create/yinyue202608/blob/main/20260820-tbhpm1dq.md'>大华股份2026半年报出炉</a></p>
-
-<h3>美军中央司令部称“华盛顿”号航母已部署在中东</h3>
-
-<p><a href='https://github.com/hevwybsv-art/ziran202607/blob/main/20260813-7bjb3hcz.md'>美军中央司令部称“华盛顿”号航母已部署在中东</a></p>
-
-<h3>3.19亿股新股解禁，SpaceX股价回落至发行价附近</h3>
-
-<p><a href='https://github.com/irenereaganxuskfc8259-del/caodi202608/blob/main/20260802_dvfyt.md'>3.19亿股新股解禁，SpaceX股价回落至发行价附近</a></p>
-
-<h3>债券市场与六旗乐园的相通之处</h3>
-
-<p><a href='https://github.com/joannaaarnamjvstl1553-ship-it/shenghuo202608/blob/main/20260809-5orm7bna.md'>债券市场与六旗乐园的相通之处</a></p>
-
-<h3>大华股份2026半年报出炉</h3>
-
-<p><a href='https://github.com/johannaamandagxsalk7151-pixel/yinyue202608/blob/main/20260813-8b7rbmqk.md'>大华股份2026半年报出炉</a></p>
-
-<h3>大体重记者跑采访不再愁？记者实测外骨骼机器人</h3>
-
-<p><a href='https://github.com/kendalljuliettedvcyso3265-web/guangming202608/blob/main/20260817-bp1wlp8q.md'>大体重记者跑采访不再愁？记者实测外骨骼机器人</a></p>
-
-<h3>国家发展改革委主任郑栅洁主持召开民营企业座谈会 围绕稳定经济运行促进有效投资听取意见建议</h3>
-
-<p><a href='https://github.com/kensleyraynaunuoun5699-lab/xinwen202608/blob/main/20260801_70wto.md'>国家发展改革委主任郑栅洁主持召开民营企业座谈会 围绕稳定经济运行促进有效投资听取意见建议</a></p>
-
-<h3>美联储7月纪要：三人已投票加息，多人警告“通胀若不降就要收紧”</h3>
-
-<p><a href='https://github.com/lindsayawren-sys/20260718_05/blob/main/20260819-yfeynjkp.md'>美联储7月纪要：三人已投票加息，多人警告“通胀若不降就要收紧”</a></p>
-
-<h3>阿克托斯资本同意收购亚特兰大猎鹰队10%股份，球队估值106亿美元</h3>
-
-<p><a href='https://github.com/lindsayawren-sys/20260718_12/blob/main/20260810-zy92nxh5.md'>阿克托斯资本同意收购亚特兰大猎鹰队10%股份，球队估值106亿美元</a></p>
-
-<h3>上市公司组织百人“抢公章”？ 海威华芯控制权纠纷升级</h3>
-
-<p><a href='https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/20260709_3xwfx.md'>上市公司组织百人“抢公章”？ 海威华芯控制权纠纷升级</a></p>
-
-<h3>香港举办“东盟电影节2026” 逾30部佳片促文化交流合作</h3>
-
-<p><a href='https://github.com/lindsayawren-sys/mmiaoenqa1/blob/main/20260807-95c18pom.md'>香港举办“东盟电影节2026” 逾30部佳片促文化交流合作</a></p>
-
-<h3>贝森特称财政部债券回购规模或将超过40亿美元</h3>
-
-<p><a href='https://github.com/linhh234/20260718_05/blob/main/20260726_a2236.md'>贝森特称财政部债券回购规模或将超过40亿美元</a></p>
-
-<h3>阿克托斯资本同意收购亚特兰大猎鹰队10%股份，球队估值106亿美元</h3>
-
-<p><a href='https://github.com/linhh234/20260718_11/blob/main/20260817-rjb0tag6.md'>阿克托斯资本同意收购亚特兰大猎鹰队10%股份，球队估值106亿美元</a></p>
-
-<h3>申请美国大学的外国学生出现近十年来最大降幅</h3>
-
-<p><a href='https://github.com/linhh234/20260718_18/blob/main/20260809-25tsift0.md'>申请美国大学的外国学生出现近十年来最大降幅</a></p>
-
-<h3>大华股份2026半年报出炉</h3>
-
-<p><a href='https://github.com/malaysiamileyetmynx3953-sketch/shenghuo202608/blob/main/0514_854.md'>大华股份2026半年报出炉</a></p>
-
-<h3>受汽油和柴油拉动，加拿大7月生产者价格上涨</h3>
-
-<p><a href='https://github.com/mejiastanle/20260718_04/blob/main/20260813-4sddcjc0.md'>受汽油和柴油拉动，加拿大7月生产者价格上涨</a></p>
-
-<h3>折叠屏iPad项目流产：苹果最后还是选择砍掉</h3>
-
-<p><a href='https://github.com/mejiastanle/20260718_11/blob/main/20260805_p7qxs.md'>折叠屏iPad项目流产：苹果最后还是选择砍掉</a></p>
-
-<h3>美债管理策略失去可预测性 投资者警告政府融资成本恐上升</h3>
-
-<p><a href='https://github.com/mejiastanle/20260718_18/blob/main/20260725_hlznm.md'>美债管理策略失去可预测性 投资者警告政府融资成本恐上升</a></p>
-
-<h3>大团联袂！舞蹈诗剧《只此青绿》千场大秀金秋亮相“水立方”</h3>
-
-<p><a href='https://github.com/mikaylaryleeeschkq9257-dot/keji202608/blob/main/20260808-5u4egmsr.md'>大团联袂！舞蹈诗剧《只此青绿》千场大秀金秋亮相“水立方”</a></p>
-
-<h3>美国下周将揭晓孤立伊朗经济的计划</h3>
-
-<p><a href='https://github.com/miot0t-create/guangming202608/blob/main/20260812-6xg9lwff.md'>美国下周将揭晓孤立伊朗经济的计划</a></p>
-
-<h3>南钢股份上半年营收311.3亿元 净利同比降9.64%</h3>
-
-<p><a href='https://github.com/miot0t-create/tiyu202608/blob/main/20260812-996o387b.md'>南钢股份上半年营收311.3亿元 净利同比降9.64%</a></p>
-
-<h3>美军中央司令部称“华盛顿”号航母已部署在中东</h3>
-
-<p><a href='https://github.com/nadialylaouliba3944-blip/shenghuo202608/blob/main/0601_569.md'>美军中央司令部称“华盛顿”号航母已部署在中东</a></p>
-
-<h3>阿里财报,透露AI新进展!</h3>
-
-<p><a href='https://github.com/raeganazariahqswbdr1627-cpu/yinyue202608/blob/main/20260808-a0giiybi.md'>阿里财报,透露AI新进展!</a></p>
-
-<h3>2026年两岸关系研讨会在武汉开幕</h3>
-
-<p><a href='https://github.com/stellakhaleesikpzujq5409-blip/guangming202608/blob/main/20260816-zuqsikgj.md'>2026年两岸关系研讨会在武汉开幕</a></p>
-
-<h3>德国今年4月以来约有1.4万人因高温相关因素死亡</h3>
-
-<p><a href='https://github.com/theahayleendnoqd6760-ux/xinwen202608/blob/main/20260813-v3rmv901.md'>德国今年4月以来约有1.4万人因高温相关因素死亡</a></p>
-
-<h3>一次性补税8381万！“西北王”金徽酒净利大降28%</h3>
-
-<p><a href='https://github.com/ticeilohoiyoh-afk/ziran202607/blob/main/20260717_5pvnm.md'>一次性补税8381万！“西北王”金徽酒净利大降28%</a></p>
-
-<h3>这家“小巨人”冲刺IPO关键时刻，第一大供应商离奇注销！</h3>
-
-<p><a href='https://github.com/adaleefayeocgzyd5066-lang/yinyue202608/blob/main/20260817-0v0m30p2.md'>这家“小巨人”冲刺IPO关键时刻，第一大供应商离奇注销！</a></p>
-
-<h3>美国“救市”次日，美债又“崩”了</h3>
-
-<p><a href='https://github.com/adelynmikaelakcgnmt0762-spec/keji202608/blob/main/20260802_b4ean.md'>美国“救市”次日，美债又“崩”了</a></p>
-
-<h3>特朗普称白宫立法事务主任布雷德将离职</h3>
-
-<p><a href='https://github.com/adleycatalinawxxnqj0188-byte/xinwen202608/blob/main/20260809-wwwvhh58.md'>特朗普称白宫立法事务主任布雷德将离职</a></p>
-
-<h3>胡塞武装称对沙特发动无人机袭击</h3>
-
-<p><a href='https://github.com/annikaoakleighzinjiu1817-prog/guangming202608/blob/main/20260813-k16bi6lh.md'>胡塞武装称对沙特发动无人机袭击</a></p>
-
-<h3>美国“救市”次日，美债又“崩”了</h3>
-
-<p><a href='https://github.com/asadw0454/20260718_04/blob/main/20260728_rlwwp.md'>美国“救市”次日，美债又“崩”了</a></p>
-
-<h3>阿克托斯资本同意收购亚特兰大猎鹰队10%股份，球队估值106亿美元</h3>
-
-<p><a href='https://github.com/asadw0454/20260718_10/blob/main/20260820-1wx7ht4i.md'>阿克托斯资本同意收购亚特兰大猎鹰队10%股份，球队估值106亿美元</a></p>
-
-<h3>特朗普称白宫立法事务主任布雷德将离职</h3>
-
-<p><a href='https://github.com/asadw0454/2026chuntian/blob/main/20260711_80g2a.md'>特朗普称白宫立法事务主任布雷德将离职</a></p>
-
-<h3>美国财政部长贝森特称美债回购操作单次规模可能超过40亿美元</h3>
-
-<p><a href='https://github.com/asadw0454/2026liuxing/blob/main/20260718_7ew1p.md'>美国财政部长贝森特称美债回购操作单次规模可能超过40亿美元</a></p>
-
-<h3>国家发展改革委主任郑栅洁主持召开民营企业座谈会 围绕稳定经济运行促进有效投资听取意见建议</h3>
-
-<p><a href='https://github.com/b6y02faw-maker/fangchan202608/blob/main/20260818-540rc3li.md'>国家发展改革委主任郑栅洁主持召开民营企业座谈会 围绕稳定经济运行促进有效投资听取意见建议</a></p>
-
-<h3>国家发展改革委主任郑栅洁主持召开民营企业座谈会 围绕稳定经济运行促进有效投资听取意见建议</h3>
-
-<p><a href='https://github.com/b6y02faw-maker/shishang202608/blob/main/20260818-8kw2n1ir.md'>国家发展改革委主任郑栅洁主持召开民营企业座谈会 围绕稳定经济运行促进有效投资听取意见建议</a></p>
-
-<h3>14国华裔青少年陕西研学之旅在西安落幕</h3>
-
-<p><a href='https://github.com/bdor2v-code/caodi202608/blob/main/20260818-9e0u155d.md'>14国华裔青少年陕西研学之旅在西安落幕</a></p>
-
-<h3>美国“救市”次日，美债又“崩”了</h3>
-
-<p><a href='https://github.com/bdor2v-code/qiche202608/blob/main/20260818-c7bqsf5j.md'>美国“救市”次日，美债又“崩”了</a></p>
-
-<h3>受汽油和柴油拉动，加拿大7月生产者价格上涨</h3>
-
-<p><a href='https://github.com/bdor2v-code/ziran202608/blob/main/20260818-d1zeo1ml.md'>受汽油和柴油拉动，加拿大7月生产者价格上涨</a></p>
-
-<h3>A股缩量普涨，释放什么信号？</h3>
-
-<p><a href='https://github.com/bernettcoia/20260718_07/blob/main/20260809-rhusqfu8.md'>A股缩量普涨，释放什么信号？</a></p>
-
-<h3>百余青少年“骑”聚北京延庆比拼竞速</h3>
-
-<p><a href='https://github.com/bernettcoia/20260718_14/blob/main/20260730_zcsx8.md'>百余青少年“骑”聚北京延庆比拼竞速</a></p>
-
-<h3>美军中央司令部称“华盛顿”号航母已部署在中东</h3>
-
-<p><a href='https://github.com/dmwke4-ops/caijing202608/blob/main/0601_159.md'>美军中央司令部称“华盛顿”号航母已部署在中东</a></p>
-
-<h3>歌剧《卡门》中文版厦门上演 97岁指挥家郑小瑛执棒</h3>
-
-<p><a href='https://github.com/dmwke4-ops/meishi202608/blob/main/0601_328.md'>歌剧《卡门》中文版厦门上演 97岁指挥家郑小瑛执棒</a></p>
-
-<h3>这家“小巨人”冲刺IPO关键时刻，第一大供应商离奇注销！</h3>
-
-<p><a href='https://github.com/dmwke4-ops/yule202608/blob/main/0601_610.md'>这家“小巨人”冲刺IPO关键时刻，第一大供应商离奇注销！</a></p>
-
-<h3>特朗普称白宫立法事务主任布雷德将离职</h3>
-
-<p><a href='https://github.com/ero9esx-creator/keji202608/blob/main/0601_813.md'>特朗普称白宫立法事务主任布雷德将离职</a></p>
-
-<h3>香港举办“东盟电影节2026” 逾30部佳片促文化交流合作</h3>
-
-<p><a href='https://github.com/ero9esx-creator/yinyue202608/blob/main/20260801_0f2ys.md'>香港举办“东盟电影节2026” 逾30部佳片促文化交流合作</a></p>
-
-<h3>餐饮黄牛高价倒卖排号是否涉嫌违法？律师解读来了</h3>
-
-<p><a href='https://github.com/fatimarubytiphxr0019-glitch/yinyue202608/blob/main/20260807-pvq0fory.md'>餐饮黄牛高价倒卖排号是否涉嫌违法？律师解读来了</a></p>
-
-<h3>迪尔公司营收攀升，利润实现增长</h3>
-
-<p><a href='https://github.com/hevwybsv-art/caodi202607/blob/main/20260811-391qks90.md'>迪尔公司营收攀升，利润实现增长</a></p>
-
-<h3>债券市场与六旗乐园的相通之处</h3>
-
-<p><a href='https://github.com/hubbygoing144-wq/caodi202607/blob/main/2100_655.md'>债券市场与六旗乐园的相通之处</a></p>
-
-<h3>大华股份2026半年报出炉</h3>
-
-<p><a href='https://github.com/irenereaganxuskfc8259-del/keji202608/blob/main/20260813-zc72jpib.md'>大华股份2026半年报出炉</a></p>
+<p><a href='https://github.com/adelynmikaelakcgnmt0762-spec/ziran202608/blob/main/20260821-ch7tzmbw.md'>8月21日美股成交额前20：美光收涨3.97%，公司宣布成立Micron Research Labs，计划未来十年投入100亿美元</a></p>
 
 <h3>伊朗外交部谴责美国对伊实施新一轮经济制裁</h3>
 
-<p><a href='https://github.com/joannaaarnamjvstl1553-ship-it/xinwen202608/blob/main/20260819-9v1mr8gx.md'>伊朗外交部谴责美国对伊实施新一轮经济制裁</a></p>
+<p><a href='https://github.com/lindsayawren-sys/20260718_05/blob/main/20260821-zkdxy13d.md'>伊朗外交部谴责美国对伊实施新一轮经济制裁</a></p>
 
-<h3>美债管理策略失去可预测性 投资者警告政府融资成本恐上升</h3>
+<h3>8月21日外盘头条：贝森特称美国大概率不会重启大规模对伊作战 沃尔玛股价重挫超9%</h3>
 
-<p><a href='https://github.com/kategeorgiaxtgxfl9771-lab/guangming202608/blob/main/20260803_ljfew.md'>美债管理策略失去可预测性 投资者警告政府融资成本恐上升</a></p>
+<p><a href='https://github.com/asadw0454/2026mingyue/blob/main/20260821-r36tpni8.md'>8月21日外盘头条：贝森特称美国大概率不会重启大规模对伊作战 沃尔玛股价重挫超9%</a></p>
 
-<h3>一次性补税8381万！“西北王”金徽酒净利大降28%</h3>
+<h3>花旗将美元短期看法转为看空，此前已就美债回购风险发出警告</h3>
 
-<p><a href='https://github.com/kendalljuliettedvcyso3265-web/wenhua202608/blob/main/20260809-47hpncxb.md'>一次性补税8381万！“西北王”金徽酒净利大降28%</a></p>
+<p><a href='https://github.com/mejiastanle/20260718_02/blob/main/20260821-l7ddlfsw.md'>花旗将美元短期看法转为看空，此前已就美债回购风险发出警告</a></p>
 
-<h3>14国华裔青少年陕西研学之旅在西安落幕</h3>
+<h3>摩根大通警告：财政部加倍回购长债，可能抬升而非压低收益率</h3>
 
-<p><a href='https://github.com/kensleyraynaunuoun5699-lab/ziran202608/blob/main/20260813-dpamvwjg.md'>14国华裔青少年陕西研学之旅在西安落幕</a></p>
-
-<h3>贝森特称可能进一步加大美债回购力度 并将公布新的财政举措</h3>
-
-<p><a href='https://github.com/lindsayawren-sys/20260718_07/blob/main/20260806_ku8w8.md'>贝森特称可能进一步加大美债回购力度 并将公布新的财政举措</a></p>
-
-<h3>美国下周将揭晓孤立伊朗经济的计划</h3>
-
-<p><a href='https://github.com/lindsayawren-sys/ekzno3nz5rl/blob/main/20260726_87nsh.md'>美国下周将揭晓孤立伊朗经济的计划</a></p>
-
-<h3>阿克托斯资本同意收购亚特兰大猎鹰队10%股份，球队估值106亿美元</h3>
-
-<p><a href='https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/20260715_uvj8e.md'>阿克托斯资本同意收购亚特兰大猎鹰队10%股份，球队估值106亿美元</a></p>
+<p><a href='https://github.com/bernettcoia/20260718_05/blob/main/20260821-59716csv.md'>摩根大通警告：财政部加倍回购长债，可能抬升而非压低收益率</a></p>
 
 <h3>如何扑灭由二战遗留弹药助长的野火？试试无人驾驶坦克</h3>
 
-<p><a href='https://github.com/lindsayawren-sys/test555/blob/main/20260720_2j5ro.md'>如何扑灭由二战遗留弹药助长的野火？试试无人驾驶坦克</a></p>
-
-<h3>债券市场与六旗乐园的相通之处</h3>
-
-<p><a href='https://github.com/linhh234/20260718_06/blob/main/20260812-1drcshmi.md'>债券市场与六旗乐园的相通之处</a></p>
-
-<h3>大华股份2026半年报出炉</h3>
-
-<p><a href='https://github.com/linhh234/20260718_13/blob/main/20260803_2ck6d.md'>大华股份2026半年报出炉</a></p>
-
-<h3>上市公司组织百人“抢公章”？ 海威华芯控制权纠纷升级</h3>
-
-<p><a href='https://github.com/linhh234/we561z4ja/blob/main/20260704_ykdxf.md'>上市公司组织百人“抢公章”？ 海威华芯控制权纠纷升级</a></p>
-
-<h3>AI数据中心引发普遍不满：从商业广告到大选，抗议之声四处蔓延</h3>
-
-<p><a href='https://github.com/malaysiamileyetmynx3953-sketch/xinwen202608/blob/main/20260812-obrwwzat.md'>AI数据中心引发普遍不满：从商业广告到大选，抗议之声四处蔓延</a></p>
-
-<h3>歌剧《卡门》中文版厦门上演 97岁指挥家郑小瑛执棒</h3>
-
-<p><a href='https://github.com/mejiastanle/20260718_06/blob/main/20260729_34r7x.md'>歌剧《卡门》中文版厦门上演 97岁指挥家郑小瑛执棒</a></p>
-
-<h3>特朗普称白宫立法事务主任布雷德将离职</h3>
-
-<p><a href='https://github.com/mejiastanle/20260718_12/blob/main/20260820-anlip3zr.md'>特朗普称白宫立法事务主任布雷德将离职</a></p>
+<p><a href='https://github.com/miot0t-create/youxi202608/blob/main/20260821-y6r7vlcr.md'>如何扑灭由二战遗留弹药助长的野火？试试无人驾驶坦克</a></p>
 
 <h3>折叠屏iPad项目流产：苹果最后还是选择砍掉</h3>
 
-<p><a href='https://github.com/mejiastanle/20260718_19/blob/main/20260811-bp9fund1.md'>折叠屏iPad项目流产：苹果最后还是选择砍掉</a></p>
+<p><a href='https://github.com/ero9esx-creator/lvyou202608/blob/main/20260821-o8bgf66x.md'>折叠屏iPad项目流产：苹果最后还是选择砍掉</a></p>
 
-<h3>上市公司组织百人“抢公章”？ 海威华芯控制权纠纷升级</h3>
+<h3>美国股市：标普500重拾跌势，国债回购提振效应消退</h3>
 
-<p><a href='https://github.com/mikaylaryleeeschkq9257-dot/wenhua202608/blob/main/20260818-ajtmd71t.md'>上市公司组织百人“抢公章”？ 海威华芯控制权纠纷升级</a></p>
+<p><a href='https://github.com/ticeilohoiyoh-afk/shenghuo202607/blob/main/20260821-cnokf5r5.md'>美国股市：标普500重拾跌势，国债回购提振效应消退</a></p>
 
-<h3>AI数据中心引发普遍不满：从商业广告到大选，抗议之声四处蔓延</h3>
+<h3>小摩走访弗里蒙特：特斯拉故意不加Model Y，Robotaxi赌注押在Cybercab</h3>
 
-<p><a href='https://github.com/miot0t-create/jiaoyu202608/blob/main/20260812-vg02ma6r.md'>AI数据中心引发普遍不满：从商业广告到大选，抗议之声四处蔓延</a></p>
-
-<h3>阿里财报,透露AI新进展!</h3>
-
-<p><a href='https://github.com/miot0t-create/xinwen202608/blob/main/20260812-xsq1qw5s.md'>阿里财报,透露AI新进展!</a></p>
-
-<h3>2026年两岸关系研讨会在武汉开幕</h3>
-
-<p><a href='https://github.com/nadialylaouliba3944-blip/xinwen202608/blob/main/20260812-lghewmz7.md'>2026年两岸关系研讨会在武汉开幕</a></p>
-
-<h3>阿克托斯资本同意收购亚特兰大猎鹰队10%股份，球队估值106亿美元</h3>
-
-<p><a href='https://github.com/ramonaviviansbkhfb9905-create/caodi202608/blob/main/20260818-ggst88o9.md'>阿克托斯资本同意收购亚特兰大猎鹰队10%股份，球队估值106亿美元</a></p>
-
-<h3>美国下周将揭晓孤立伊朗经济的计划</h3>
-
-<p><a href='https://github.com/stellakhaleesikpzujq5409-blip/wenhua202608/blob/main/20260813-eu8jupth.md'>美国下周将揭晓孤立伊朗经济的计划</a></p>
-
-<h3>美联储7月纪要：三人已投票加息，多人警告“通胀若不降就要收紧”</h3>
-
-<p><a href='https://github.com/ticeilohoiyoh-afk/caodi202607/blob/main/1812_497.md'>美联储7月纪要：三人已投票加息，多人警告“通胀若不降就要收紧”</a></p>
-
-<h3>大团联袂！舞蹈诗剧《只此青绿》千场大秀金秋亮相“水立方”</h3>
-
-<p><a href='https://github.com/adelinafreyjatlhgja6901-tech/guangming202608/blob/main/20260809-1t582x49.md'>大团联袂！舞蹈诗剧《只此青绿》千场大秀金秋亮相“水立方”</a></p>
-
-<h3>香港举办“东盟电影节2026” 逾30部佳片促文化交流合作</h3>
-
-<p><a href='https://github.com/adelynmikaelakcgnmt0762-spec/wenhua202608/blob/main/20260813-wetgcy8w.md'>香港举办“东盟电影节2026” 逾30部佳片促文化交流合作</a></p>
-
-<h3>餐饮黄牛高价倒卖排号是否涉嫌违法？律师解读来了</h3>
-
-<p><a href='https://github.com/adleycatalinawxxnqj0188-byte/ziran202608/blob/main/20260820-bve1o7ic.md'>餐饮黄牛高价倒卖排号是否涉嫌违法？律师解读来了</a></p>
-
-<h3>AI数据中心引发普遍不满：从商业广告到大选，抗议之声四处蔓延</h3>
-
-<p><a href='https://github.com/annikaoakleighzinjiu1817-prog/wenhua202608/blob/main/20260810-zoh3uqud.md'>AI数据中心引发普遍不满：从商业广告到大选，抗议之声四处蔓延</a></p>
-
-<h3>美债管理策略失去可预测性 投资者警告政府融资成本恐上升</h3>
-
-<p><a href='https://github.com/asadw0454/20260718_05/blob/main/20260813-ntjqzbzq.md'>美债管理策略失去可预测性 投资者警告政府融资成本恐上升</a></p>
-
-<h3>诺和新元营收超预期、上调业绩指引，领涨欧洲斯托克600指数</h3>
-
-<p><a href='https://github.com/asadw0454/20260718_12/blob/main/20260806_mwl4y.md'>诺和新元营收超预期、上调业绩指引，领涨欧洲斯托克600指数</a></p>
-
-<h3>医院通报“孕妇因医生疏忽误服液体”：涉事医生已暂停执业</h3>
-
-<p><a href='https://github.com/asadw0454/2026chuntian/blob/main/20260802_f89tc.md'>医院通报“孕妇因医生疏忽误服液体”：涉事医生已暂停执业</a></p>
-
-<h3>阿里财报,透露AI新进展!</h3>
-
-<p><a href='https://github.com/asadw0454/2026mingyue/blob/main/20260710_hakcv.md'>阿里财报,透露AI新进展!</a></p>
-
-<h3>股价跌停，罗普斯金独家回应：公司随行就市购置原材料</h3>
-
-<p><a href='https://github.com/b6y02faw-maker/jiankang202608/blob/main/20260819-4y0cizln.md'>股价跌停，罗普斯金独家回应：公司随行就市购置原材料</a></p>
-
-<h3>阿里财报,透露AI新进展!</h3>
-
-<p><a href='https://github.com/b6y02faw-maker/wenhua202608/blob/main/20260819-8xr1mrxb.md'>阿里财报,透露AI新进展!</a></p>
-
-<h3>诺和新元营收超预期、上调业绩指引，领涨欧洲斯托克600指数</h3>
-
-<p><a href='https://github.com/bdor2v-code/fangchan202608/blob/main/20260819-9e2nuu7k.md'>诺和新元营收超预期、上调业绩指引，领涨欧洲斯托克600指数</a></p>
-
-<h3>诺和新元营收超预期、上调业绩指引，领涨欧洲斯托克600指数</h3>
-
-<p><a href='https://github.com/bdor2v-code/shishang202608/blob/main/20260819-bsntedqe.md'>诺和新元营收超预期、上调业绩指引，领涨欧洲斯托克600指数</a></p>
-
-<h3>3.19亿股新股解禁，SpaceX股价回落至发行价附近</h3>
-
-<p><a href='https://github.com/bernettcoia/20260718_02/blob/main/20260803_xhi07.md'>3.19亿股新股解禁，SpaceX股价回落至发行价附近</a></p>
-
-<h3>阿克托斯资本同意收购亚特兰大猎鹰队10%股份，球队估值106亿美元</h3>
-
-<p><a href='https://github.com/bernettcoia/20260718_09/blob/main/20260724_soj1b.md'>阿克托斯资本同意收购亚特兰大猎鹰队10%股份，球队估值106亿美元</a></p>
-
-<h3>美债管理策略失去可预测性 投资者警告政府融资成本恐上升</h3>
-
-<p><a href='https://github.com/bernettcoia/20260718_15/blob/main/20260816-7swqopvb.md'>美债管理策略失去可预测性 投资者警告政府融资成本恐上升</a></p>
-
-<h3>阿克托斯资本同意收购亚特兰大猎鹰队10%股份，球队估值106亿美元</h3>
-
-<p><a href='https://github.com/dmwke4-ops/dianying202608/blob/main/20260802_etu3y.md'>阿克托斯资本同意收购亚特兰大猎鹰队10%股份，球队估值106亿美元</a></p>
-
-<h3>香港举办“东盟电影节2026” 逾30部佳片促文化交流合作</h3>
-
-<p><a href='https://github.com/dmwke4-ops/shenghuo202608/blob/main/20260802_d81ag.md'>香港举办“东盟电影节2026” 逾30部佳片促文化交流合作</a></p>
-
-<h3>百余青少年“骑”聚北京延庆比拼竞速</h3>
-
-<p><a href='https://github.com/ero9esx-creator/caijing202608/blob/main/20260802_gx8fz.md'>百余青少年“骑”聚北京延庆比拼竞速</a></p>
-
-<h3>大体重记者跑采访不再愁？记者实测外骨骼机器人</h3>
-
-<p><a href='https://github.com/ero9esx-creator/meishi202608/blob/main/20260802_k9xxj.md'>大体重记者跑采访不再愁？记者实测外骨骼机器人</a></p>
-
-<h3>14国华裔青少年陕西研学之旅在西安落幕</h3>
-
-<p><a href='https://github.com/ero9esx-creator/yule202608/blob/main/20260802_juzdk.md'>14国华裔青少年陕西研学之旅在西安落幕</a></p>
-
-<h3>3.19亿股新股解禁，SpaceX股价回落至发行价附近</h3>
-
-<p><a href='https://github.com/helenaddysonkahuuj0793-create/caodi202608/blob/main/20260817-b4k7876t.md'>3.19亿股新股解禁，SpaceX股价回落至发行价附近</a></p>
-
-<h3>受汽油和柴油拉动，加拿大7月生产者价格上涨</h3>
-
-<p><a href='https://github.com/hevwybsv-art/guangming202607/blob/main/20260818-q6a3uywu.md'>受汽油和柴油拉动，加拿大7月生产者价格上涨</a></p>
-
-<h3>折叠屏iPad项目流产：苹果最后还是选择砍掉</h3>
-
-<p><a href='https://github.com/hubbygoing144-wq/shenghuo202607/blob/main/20260717_y0q1c.md'>折叠屏iPad项目流产：苹果最后还是选择砍掉</a></p>
-
-<h3>债券市场与六旗乐园的相通之处</h3>
-
-<p><a href='https://github.com/irenereaganxuskfc8259-del/xinwen202608/blob/main/20260807-6p3br0uz.md'>债券市场与六旗乐园的相通之处</a></p>
-
-<h3>一次性补税8381万！“西北王”金徽酒净利大降28%</h3>
-
-<p><a href='https://github.com/johannaamandagxsalk7151-pixel/caodi202608/blob/main/20260810-gxrlhpbe.md'>一次性补税8381万！“西北王”金徽酒净利大降28%</a></p>
+<p><a href='https://github.com/irenereaganxuskfc8259-del/ziran202608/blob/main/20260821-59an2yoy.md'>小摩走访弗里蒙特：特斯拉故意不加Model Y，Robotaxi赌注押在Cybercab</a></p>
 
 <h3>美财长贝森特在债券市场宣告妥协</h3>
 
-<p><a href='https://github.com/kategeorgiaxtgxfl9771-lab/shenghuo202608/blob/main/20260814-waqdfiyu.md'>美财长贝森特在债券市场宣告妥协</a></p>
+<p><a href='https://github.com/adelynmikaelakcgnmt0762-spec/xinwen202608/blob/main/20260821-wcjdj4ml.md'>美财长贝森特在债券市场宣告妥协</a></p>
 
-<h3>胡塞武装称对沙特发动无人机袭击</h3>
+<h3>8月21日美股成交额前20：美光收涨3.97%，公司宣布成立Micron Research Labs，计划未来十年投入100亿美元</h3>
 
-<p><a href='https://github.com/kendalljuliettedvcyso3265-web/yinyue202608/blob/main/20260819-5eh39rf3.md'>胡塞武装称对沙特发动无人机袭击</a></p>
+<p><a href='https://github.com/lindsayawren-sys/20260718_04/blob/main/20260821-okcokxj6.md'>8月21日美股成交额前20：美光收涨3.97%，公司宣布成立Micron Research Labs，计划未来十年投入100亿美元</a></p>
 
-<h3>大华股份2026半年报出炉</h3>
+<h3>Anthropic首次公开募股规模料追平甚至赶超SpaceX创下的纪录</h3>
 
-<p><a href='https://github.com/lindsayawren-sys/20260718_02/blob/main/20260730_0beuh.md'>大华股份2026半年报出炉</a></p>
-
-<h3>折叠屏iPad项目流产：苹果最后还是选择砍掉</h3>
-
-<p><a href='https://github.com/lindsayawren-sys/20260718_09/blob/main/20260718_2uc25.md'>折叠屏iPad项目流产：苹果最后还是选择砍掉</a></p>
-
-<h3>折叠屏iPad项目流产：苹果最后还是选择砍掉</h3>
-
-<p><a href='https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/20260708_mav12.md'>折叠屏iPad项目流产：苹果最后还是选择砍掉</a></p>
-
-<h3>折叠屏iPad项目流产：苹果最后还是选择砍掉</h3>
-
-<p><a href='https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/20260706_v658c.md'>折叠屏iPad项目流产：苹果最后还是选择砍掉</a></p>
-
-<h3>阿克托斯资本同意收购亚特兰大猎鹰队10%股份，球队估值106亿美元</h3>
-
-<p><a href='https://github.com/linhh234/20260718_01/blob/main/20260807-ebvynb2h.md'>阿克托斯资本同意收购亚特兰大猎鹰队10%股份，球队估值106亿美元</a></p>
-
-<h3>胡塞武装称对沙特发动无人机袭击</h3>
-
-<p><a href='https://github.com/linhh234/20260718_08/blob/main/20260727_imnpq.md'>胡塞武装称对沙特发动无人机袭击</a></p>
-
-<h3>美军中央司令部称“华盛顿”号航母已部署在中东</h3>
-
-<p><a href='https://github.com/linhh234/20260718_14/blob/main/20260819-3n0cea12.md'>美军中央司令部称“华盛顿”号航母已部署在中东</a></p>
-
-<h3>特朗普称白宫立法事务主任布雷德将离职</h3>
-
-<p><a href='https://github.com/linhh234/we561z4ja/blob/main/20260712_vmrnv.md'>特朗普称白宫立法事务主任布雷德将离职</a></p>
-
-<h3>贝森特称可能进一步加大美债回购力度 并将公布新的财政举措</h3>
-
-<p><a href='https://github.com/mejiastanle/20260718_01/blob/main/20260722_vuwl9.md'>贝森特称可能进一步加大美债回购力度 并将公布新的财政举措</a></p>
-
-<h3>迪尔公司营收攀升，利润实现增长</h3>
-
-<p><a href='https://github.com/mejiastanle/20260718_07/blob/main/20260813-ta0wejc0.md'>迪尔公司营收攀升，利润实现增长</a></p>
-
-<h3>德国今年4月以来约有1.4万人因高温相关因素死亡</h3>
-
-<p><a href='https://github.com/mejiastanle/20260718_14/blob/main/20260806-y8pux8ba.md'>德国今年4月以来约有1.4万人因高温相关因素死亡</a></p>
-
-<h3>A股缩量普涨，释放什么信号？</h3>
-
-<p><a href='https://github.com/mejiastanle/msdfe52gs/blob/main/20260711_0hl4e.md'>A股缩量普涨，释放什么信号？</a></p>
-
-<h3>这家“小巨人”冲刺IPO关键时刻，第一大供应商离奇注销！</h3>
-
-<p><a href='https://github.com/mikaylaryleeeschkq9257-dot/ziran202608/blob/main/20260810-389updao.md'>这家“小巨人”冲刺IPO关键时刻，第一大供应商离奇注销！</a></p>
-
-<h3>沃尔玛早盘大跌8% 创下六年多来最低销售增速</h3>
-
-<p><a href='https://github.com/miot0t-create/lvyou202608/blob/main/20260813-ebqc0pvc.md'>沃尔玛早盘大跌8% 创下六年多来最低销售增速</a></p>
-
-<h3>大团联袂！舞蹈诗剧《只此青绿》千场大秀金秋亮相“水立方”</h3>
-
-<p><a href='https://github.com/miot0t-create/youxi202608/blob/main/20260813-egbiqta1.md'>大团联袂！舞蹈诗剧《只此青绿》千场大秀金秋亮相“水立方”</a></p>
-
-<h3>纳斯达克100指数恐五连跌 油价、收益率攀升令美股承压</h3>
-
-<p><a href='https://github.com/raeganazariahqswbdr1627-cpu/caodi202608/blob/main/20260802_r1cx0.md'>纳斯达克100指数恐五连跌 油价、收益率攀升令美股承压</a></p>
-
-<h3>百余青少年“骑”聚北京延庆比拼竞速</h3>
-
-<p><a href='https://github.com/ramonaviviansbkhfb9905-create/shenghuo202608/blob/main/20260810-8d3xt5h7.md'>百余青少年“骑”聚北京延庆比拼竞速</a></p>
-
-<h3>百余青少年“骑”聚北京延庆比拼竞速</h3>
-
-<p><a href='https://github.com/stellakhaleesikpzujq5409-blip/ziran202608/blob/main/20260810-x78nd950.md'>百余青少年“骑”聚北京延庆比拼竞速</a></p>
-
-<h3>六国棋手“云端”对弈 重庆武隆“白马山杯”东南亚围棋邀请赛开幕</h3>
-
-<p><a href='https://github.com/ticeilohoiyoh-afk/guangming202607/blob/main/20260724_c3xdk.md'>六国棋手“云端”对弈 重庆武隆“白马山杯”东南亚围棋邀请赛开幕</a></p>
-
-<h3>14国华裔青少年陕西研学之旅在西安落幕</h3>
-
-<p><a href='https://github.com/adaleefayeocgzyd5066-lang/caodi202608/blob/main/20260813-1j0bvyo1.md'>14国华裔青少年陕西研学之旅在西安落幕</a></p>
-
-<h3>德国今年4月以来约有1.4万人因高温相关因素死亡</h3>
-
-<p><a href='https://github.com/adelinafreyjatlhgja6901-tech/shenghuo202608/blob/main/20260819-hjtrmrmi.md'>德国今年4月以来约有1.4万人因高温相关因素死亡</a></p>
-
-<h3>A股缩量普涨，释放什么信号？</h3>
-
-<p><a href='https://github.com/adelynmikaelakcgnmt0762-spec/ziran202608/blob/main/20260807-3phji8bs.md'>A股缩量普涨，释放什么信号？</a></p>
+<p><a href='https://github.com/asadw0454/2026liuxing/blob/main/20260821-azjzf72h.md'>Anthropic首次公开募股规模料追平甚至赶超SpaceX创下的纪录</a></p>
 
 <h3>英国银行业巨头联名致信警告，不要进一步提高税收</h3>
 
-<p><a href='https://github.com/andinoaopmzqx2364-cpu/keji202608/blob/main/20260817-8aivg0cq.md'>英国银行业巨头联名致信警告，不要进一步提高税收</a></p>
+<p><a href='https://github.com/mejiastanle/20260718_01/blob/main/20260821-2q5izl16.md'>英国银行业巨头联名致信警告，不要进一步提高税收</a></p>
 
-<h3>申请美国大学的外国学生出现近十年来最大降幅</h3>
+<h3>医院通报“孕妇因医生疏忽误服液体”：涉事医生已暂停执业</h3>
 
-<p><a href='https://github.com/annikaoakleighzinjiu1817-prog/ziran202608/blob/main/20260808-hybfq5zq.md'>申请美国大学的外国学生出现近十年来最大降幅</a></p>
+<p><a href='https://github.com/bernettcoia/20260718_03/blob/main/20260821-sb7aulix.md'>医院通报“孕妇因医生疏忽误服液体”：涉事医生已暂停执业</a></p>
 
-<h3>杰克逊霍尔前瞻：沃什首次主席演讲，市场要的是反应函数，不是支付主题</h3>
+<h3>香港举办“东盟电影节2026” 逾30部佳片促文化交流合作</h3>
 
-<p><a href='https://github.com/asadw0454/20260718_07/blob/main/20260730_3lzlg.md'>杰克逊霍尔前瞻：沃什首次主席演讲，市场要的是反应函数，不是支付主题</a></p>
+<p><a href='https://github.com/miot0t-create/yinyue202608/blob/main/20260821-o80z3pbn.md'>香港举办“东盟电影节2026” 逾30部佳片促文化交流合作</a></p>
+
+<h3>美国财政部长贝森特称美债回购操作单次规模可能超过40亿美元</h3>
+
+<p><a href='https://github.com/ero9esx-creator/keji202608/blob/main/20260821-dz2ujhso.md'>美国财政部长贝森特称美债回购操作单次规模可能超过40亿美元</a></p>
+
+<h3>美国财政部长贝森特称美债回购操作单次规模可能超过40亿美元</h3>
+
+<p><a href='https://github.com/ticeilohoiyoh-afk/guangming202607/blob/main/20260821-35afm6t6.md'>美国财政部长贝森特称美债回购操作单次规模可能超过40亿美元</a></p>
+
+<h3>歌剧《卡门》中文版厦门上演 97岁指挥家郑小瑛执棒</h3>
+
+<p><a href='https://github.com/irenereaganxuskfc8259-del/xinwen202608/blob/main/20260821-rb6plwfa.md'>歌剧《卡门》中文版厦门上演 97岁指挥家郑小瑛执棒</a></p>
+
+<h3>8月21日美股成交额前20：美光收涨3.97%，公司宣布成立Micron Research Labs，计划未来十年投入100亿美元</h3>
+
+<p><a href='https://github.com/adelynmikaelakcgnmt0762-spec/wenhua202608/blob/main/20260821-n70qwr9s.md'>8月21日美股成交额前20：美光收涨3.97%，公司宣布成立Micron Research Labs，计划未来十年投入100亿美元</a></p>
+
+<h3>美国财政部长贝森特称美债回购操作单次规模可能超过40亿美元</h3>
+
+<p><a href='https://github.com/lindsayawren-sys/20260718_03/blob/main/20260821-d3ghgcos.md'>美国财政部长贝森特称美债回购操作单次规模可能超过40亿美元</a></p>
+
+<h3>8月21日美股收盘：长债收益率反弹抹去回购利好，沃尔玛暴跌近9%拖累道指重挫超700点</h3>
+
+<p><a href='https://github.com/asadw0454/2026lanyue/blob/main/20260821-10xmmdka.md'>8月21日美股收盘：长债收益率反弹抹去回购利好，沃尔玛暴跌近9%拖累道指重挫超700点</a></p>
+
+<h3>德国今年4月以来约有1.4万人因高温相关因素死亡</h3>
+
+<p><a href='https://github.com/malaysiamileyetmynx3953-sketch/yinyue202608/blob/main/20260821-u189cdf9.md'>德国今年4月以来约有1.4万人因高温相关因素死亡</a></p>
 
 <h3>贝森特称财政部债券回购规模或将超过40亿美元</h3>
 
-<p><a href='https://github.com/asadw0454/20260718_14/blob/main/20260718_6xufu.md'>贝森特称财政部债券回购规模或将超过40亿美元</a></p>
+<p><a href='https://github.com/bernettcoia/20260718_02/blob/main/20260821-jovz4qky.md'>贝森特称财政部债券回购规模或将超过40亿美元</a></p>
 
-<h3>特朗普称白宫立法事务主任布雷德将离职</h3>
+<h3>欧洲股市小幅收低 延续2023年以来最长连跌走势</h3>
 
-<p><a href='https://github.com/asadw0454/2026lanyue/blob/main/20260712_9wgto.md'>特朗普称白宫立法事务主任布雷德将离职</a></p>
+<p><a href='https://github.com/miot0t-create/xinwen202608/blob/main/20260821-cxu6cmhn.md'>欧洲股市小幅收低 延续2023年以来最长连跌走势</a></p>
 
 <h3>大体重记者跑采访不再愁？记者实测外骨骼机器人</h3>
 
-<p><a href='https://github.com/asadw0454/2026mingyue/blob/main/20260727_d8nuu.md'>大体重记者跑采访不再愁？记者实测外骨骼机器人</a></p>
+<p><a href='https://github.com/ero9esx-creator/jiaoyu202608/blob/main/20260821-0d48l73h.md'>大体重记者跑采访不再愁？记者实测外骨骼机器人</a></p>
 
-<h3>美国“救市”次日，美债又“崩”了</h3>
+<h3>沃尔玛美区同店销售六年最慢，股价重挫超9%</h3>
 
-<p><a href='https://github.com/b6y02faw-maker/keji202608/blob/main/20260820-0j2ed6g2.md'>美国“救市”次日，美债又“崩”了</a></p>
+<p><a href='https://github.com/theahayleendnoqd6760-ux/ziran202608/blob/main/20260821-sano1w1o.md'>沃尔玛美区同店销售六年最慢，股价重挫超9%</a></p>
+
+<h3>餐饮黄牛高价倒卖排号是否涉嫌违法？律师解读来了</h3>
+
+<p><a href='https://github.com/irenereaganxuskfc8259-del/wenhua202608/blob/main/20260821-erlmpkn8.md'>餐饮黄牛高价倒卖排号是否涉嫌违法？律师解读来了</a></p>
+
+<h3>南钢股份上半年营收311.3亿元 净利同比降9.64%</h3>
+
+<p><a href='https://github.com/adelynmikaelakcgnmt0762-spec/shenghuo202608/blob/main/20260821-a8qwbnxv.md'>南钢股份上半年营收311.3亿元 净利同比降9.64%</a></p>
+
+<h3>胡塞武装称对沙特发动无人机袭击</h3>
+
+<p><a href='https://github.com/lindsayawren-sys/20260718_01/blob/main/20260821-yf2dbvr6.md'>胡塞武装称对沙特发动无人机袭击</a></p>
+
+<h3>Anthropic首次公开募股规模料追平甚至赶超SpaceX创下的纪录</h3>
+
+<p><a href='https://github.com/asadw0454/20260718_16/blob/main/20260821-pcyaaur6.md'>Anthropic首次公开募股规模料追平甚至赶超SpaceX创下的纪录</a></p>
+
+<h3>贝森特称可能进一步加大美债回购力度 并将公布新的财政举措</h3>
+
+<p><a href='https://github.com/malaysiamileyetmynx3953-sketch/xinwen202608/blob/main/20260821-ibuezifs.md'>贝森特称可能进一步加大美债回购力度 并将公布新的财政举措</a></p>
+
+<h3>上市公司组织百人“抢公章”？ 海威华芯控制权纠纷升级</h3>
+
+<p><a href='https://github.com/bernettcoia/20260718_01/blob/main/20260821-aesbt5lq.md'>上市公司组织百人“抢公章”？ 海威华芯控制权纠纷升级</a></p>
+
+<h3>美财长贝森特在债券市场宣告妥协</h3>
+
+<p><a href='https://github.com/miot0t-create/tiyu202608/blob/main/20260821-xgqgvetp.md'>美财长贝森特在债券市场宣告妥协</a></p>
+
+<h3>欧洲债市：德国国债回吐涨幅 英国国债与美国国债同步下跌</h3>
+
+<p><a href='https://github.com/ero9esx-creator/guangming202608/blob/main/20260821-quecc9bm.md'>欧洲债市：德国国债回吐涨幅 英国国债与美国国债同步下跌</a></p>
+
+<h3>德国今年4月以来约有1.4万人因高温相关因素死亡</h3>
+
+<p><a href='https://github.com/theahayleendnoqd6760-ux/yinyue202608/blob/main/20260821-g1psp0jn.md'>德国今年4月以来约有1.4万人因高温相关因素死亡</a></p>
+
+<h3>英国银行业巨头联名致信警告，不要进一步提高税收</h3>
+
+<p><a href='https://github.com/irenereaganxuskfc8259-del/shenghuo202608/blob/main/20260821-a6docpkb.md'>英国银行业巨头联名致信警告，不要进一步提高税收</a></p>
+
+<h3>债券市场与六旗乐园的相通之处</h3>
+
+<p><a href='https://github.com/adelynmikaelakcgnmt0762-spec/guangming202608/blob/main/20260821-ydpfm3ul.md'>债券市场与六旗乐园的相通之处</a></p>
+
+<h3>餐饮黄牛高价倒卖排号是否涉嫌违法？律师解读来了</h3>
+
+<p><a href='https://github.com/kensleyraynaunuoun5699-lab/ziran202608/blob/main/20260821-h113ne9s.md'>餐饮黄牛高价倒卖排号是否涉嫌违法？律师解读来了</a></p>
+
+<h3>债券市场与六旗乐园的相通之处</h3>
+
+<p><a href='https://github.com/asadw0454/20260718_15/blob/main/20260821-bc5gj573.md'>债券市场与六旗乐园的相通之处</a></p>
+
+<h3>德国今年4月以来约有1.4万人因高温相关因素死亡</h3>
+
+<p><a href='https://github.com/malaysiamileyetmynx3953-sketch/wenhua202608/blob/main/20260821-4d6l7jpt.md'>德国今年4月以来约有1.4万人因高温相关因素死亡</a></p>
+
+<h3>欧洲股市小幅收低 延续2023年以来最长连跌走势</h3>
+
+<p><a href='https://github.com/bdor2v-code/yule202608/blob/main/20260821-tsv16v36.md'>欧洲股市小幅收低 延续2023年以来最长连跌走势</a></p>
+
+<h3>香港举办“东盟电影节2026” 逾30部佳片促文化交流合作</h3>
+
+<p><a href='https://github.com/miot0t-create/shishang202608/blob/main/20260821-iyv8iyfx.md'>香港举办“东盟电影节2026” 逾30部佳片促文化交流合作</a></p>
+
+<h3>债券市场与六旗乐园的相通之处</h3>
+
+<p><a href='https://github.com/ero9esx-creator/fangchan202608/blob/main/20260821-85v24ft2.md'>债券市场与六旗乐园的相通之处</a></p>
+
+<h3>摩根大通警告：财政部加倍回购长债，可能抬升而非压低收益率</h3>
+
+<p><a href='https://github.com/theahayleendnoqd6760-ux/xinwen202608/blob/main/20260821-1k4h2ikb.md'>摩根大通警告：财政部加倍回购长债，可能抬升而非压低收益率</a></p>
+
+<h3>欧洲债市：德国国债回吐涨幅 英国国债与美国国债同步下跌</h3>
+
+<p><a href='https://github.com/irenereaganxuskfc8259-del/guangming202608/blob/main/20260821-suxsplh3.md'>欧洲债市：德国国债回吐涨幅 英国国债与美国国债同步下跌</a></p>
+
+<h3>上市公司组织百人“抢公章”？ 海威华芯控制权纠纷升级</h3>
+
+<p><a href='https://github.com/adelynmikaelakcgnmt0762-spec/caodi202608/blob/main/20260821-ig9vvddn.md'>上市公司组织百人“抢公章”？ 海威华芯控制权纠纷升级</a></p>
+
+<h3>阿克托斯资本同意收购亚特兰大猎鹰队10%股份，球队估值106亿美元</h3>
+
+<p><a href='https://github.com/kensleyraynaunuoun5699-lab/yinyue202608/blob/main/20260821-7noewgri.md'>阿克托斯资本同意收购亚特兰大猎鹰队10%股份，球队估值106亿美元</a></p>
+
+<h3>伊朗外交部谴责美国对伊实施新一轮经济制裁</h3>
+
+<p><a href='https://github.com/asadw0454/20260718_14/blob/main/20260821-21xhi728.md'>伊朗外交部谴责美国对伊实施新一轮经济制裁</a></p>
+
+<h3>六国棋手“云端”对弈 重庆武隆“白马山杯”东南亚围棋邀请赛开幕</h3>
+
+<p><a href='https://github.com/malaysiamileyetmynx3953-sketch/keji202608/blob/main/20260821-qt1gupos.md'>六国棋手“云端”对弈 重庆武隆“白马山杯”东南亚围棋邀请赛开幕</a></p>
+
+<h3>南钢股份上半年营收311.3亿元 净利同比降9.64%</h3>
+
+<p><a href='https://github.com/bdor2v-code/youxi202608/blob/main/20260821-j1tlm7bf.md'>南钢股份上半年营收311.3亿元 净利同比降9.64%</a></p>
+
+<h3>“别太贪婪”——40年债市老将把风险敞口降至十余年最低</h3>
+
+<p><a href='https://github.com/miot0t-create/shenghuo202608/blob/main/20260821-b1d9tjq7.md'>“别太贪婪”——40年债市老将把风险敞口降至十余年最低</a></p>
+
+<h3>大团联袂！舞蹈诗剧《只此青绿》千场大秀金秋亮相“水立方”</h3>
+
+<p><a href='https://github.com/ero9esx-creator/caodi202608/blob/main/20260821-xywu3oth.md'>大团联袂！舞蹈诗剧《只此青绿》千场大秀金秋亮相“水立方”</a></p>
+
+<h3>香港举办“东盟电影节2026” 逾30部佳片促文化交流合作</h3>
+
+<p><a href='https://github.com/theahayleendnoqd6760-ux/shenghuo202608/blob/main/20260821-p9jz1xfk.md'>香港举办“东盟电影节2026” 逾30部佳片促文化交流合作</a></p>
+
+<h3>3.19亿股新股解禁，SpaceX股价回落至发行价附近</h3>
+
+<p><a href='https://github.com/irenereaganxuskfc8259-del/caodi202608/blob/main/20260821-jo7tucv5.md'>3.19亿股新股解禁，SpaceX股价回落至发行价附近</a></p>
+
+<h3>大团联袂！舞蹈诗剧《只此青绿》千场大秀金秋亮相“水立方”</h3>
+
+<p><a href='https://github.com/adelinafreyjatlhgja6901-tech/ziran202608/blob/main/20260821-68aa464z.md'>大团联袂！舞蹈诗剧《只此青绿》千场大秀金秋亮相“水立方”</a></p>
+
+<h3>美财长贝森特在债券市场宣告妥协</h3>
+
+<p><a href='https://github.com/kensleyraynaunuoun5699-lab/wenhua202608/blob/main/20260821-ybw7ndf7.md'>美财长贝森特在债券市场宣告妥协</a></p>
+
+<h3>贝森特称可能进一步加大美债回购力度 并将公布新的财政举措</h3>
+
+<p><a href='https://github.com/asadw0454/20260718_12/blob/main/20260821-qedqq18l.md'>贝森特称可能进一步加大美债回购力度 并将公布新的财政举措</a></p>
+
+<h3>债券收益率是“房间里的大象” 股票投资者却对其视而不见</h3>
+
+<p><a href='https://github.com/malaysiamileyetmynx3953-sketch/guangming202608/blob/main/20260821-gdlkqvli.md'>债券收益率是“房间里的大象” 股票投资者却对其视而不见</a></p>
+
+<h3>申请美国大学的外国学生出现近十年来最大降幅</h3>
+
+<p><a href='https://github.com/bdor2v-code/yinyue202608/blob/main/20260821-6bawk8wf.md'>申请美国大学的外国学生出现近十年来最大降幅</a></p>
+
+<h3>美军中央司令部称“华盛顿”号航母已部署在中东</h3>
+
+<p><a href='https://github.com/miot0t-create/meishi202608/blob/main/20260821-x5hwpm7a.md'>美军中央司令部称“华盛顿”号航母已部署在中东</a></p>
+
+<h3>特朗普政府推进加密货币新规，关键法案在国会受阻</h3>
+
+<p><a href='https://github.com/ero9esx-creator/caijing202608/blob/main/20260821-ooa69y8e.md'>特朗普政府推进加密货币新规，关键法案在国会受阻</a></p>
+
+<h3>大华股份2026半年报出炉</h3>
+
+<p><a href='https://github.com/theahayleendnoqd6760-ux/keji202608/blob/main/20260821-dl69n2yi.md'>大华股份2026半年报出炉</a></p>
+
+<h3>Anthropic首次公开募股规模料追平甚至赶超SpaceX创下的纪录</h3>
+
+<p><a href='https://github.com/hubbygoing144-wq/ziran202607/blob/main/20260821-3szcicii.md'>Anthropic首次公开募股规模料追平甚至赶超SpaceX创下的纪录</a></p>
+
+<h3>摩根大通警告：财政部加倍回购长债，可能抬升而非压低收益率</h3>
+
+<p><a href='https://github.com/adelinafreyjatlhgja6901-tech/xinwen202608/blob/main/20260821-sih32wcr.md'>摩根大通警告：财政部加倍回购长债，可能抬升而非压低收益率</a></p>
+
+<h3>沃尔玛美区同店销售六年最慢，股价重挫超9%</h3>
+
+<p><a href='https://github.com/kensleyraynaunuoun5699-lab/shenghuo202608/blob/main/20260821-jcivu7kb.md'>沃尔玛美区同店销售六年最慢，股价重挫超9%</a></p>
+
+<h3>美国住房负担能力指数自2023年以来首次恶化</h3>
+
+<p><a href='https://github.com/asadw0454/20260718_11/blob/main/20260821-g5pvnbok.md'>美国住房负担能力指数自2023年以来首次恶化</a></p>
+
+<h3>特朗普政府推进加密货币新规，关键法案在国会受阻</h3>
+
+<p><a href='https://github.com/malaysiamileyetmynx3953-sketch/caodi202608/blob/main/20260821-2yz65ty2.md'>特朗普政府推进加密货币新规，关键法案在国会受阻</a></p>
+
+<h3>AI数据中心引发普遍不满：从商业广告到大选，抗议之声四处蔓延</h3>
+
+<p><a href='https://github.com/bernettcoia/20260718_19/blob/main/20260818-9cy0iq61.md'>AI数据中心引发普遍不满：从商业广告到大选，抗议之声四处蔓延</a></p>
+
+<h3>申请美国大学的外国学生出现近十年来最大降幅</h3>
+
+<p><a href='https://github.com/dmwke4-ops/keji202608/blob/main/20260812-0cc3mr8v.md'>申请美国大学的外国学生出现近十年来最大降幅</a></p>
+
+<h3>贝森特称财政部债券回购规模或将超过40亿美元</h3>
+
+<p><a href='https://github.com/dmwke4-ops/yinyue202608/blob/main/20260810-fhcsnl38.md'>贝森特称财政部债券回购规模或将超过40亿美元</a></p>
+
+<h3>8月21日外盘头条：贝森特称美国大概率不会重启大规模对伊作战 沃尔玛股价重挫超9%</h3>
+
+<p><a href='https://github.com/ero9esx-creator/jiankang202608/blob/main/20260808-r1tc77ru.md'>8月21日外盘头条：贝森特称美国大概率不会重启大规模对伊作战 沃尔玛股价重挫超9%</a></p>
+
+<h3>圣路易斯联储行长谈及债市动荡 称市场并未质疑美联储信誉</h3>
+
+<p><a href='https://github.com/ero9esx-creator/wenhua202608/blob/main/20260807-h49v0c5t.md'>圣路易斯联储行长谈及债市动荡 称市场并未质疑美联储信誉</a></p>
+
+<h3>餐饮黄牛高价倒卖排号是否涉嫌违法？律师解读来了</h3>
+
+<p><a href='https://github.com/fatimarubytiphxr0019-glitch/shenghuo202608/blob/main/20260818-q3tg9y0e.md'>餐饮黄牛高价倒卖排号是否涉嫌违法？律师解读来了</a></p>
+
+<h3>大团联袂！舞蹈诗剧《只此青绿》千场大秀金秋亮相“水立方”</h3>
+
+<p><a href='https://github.com/helenaddysonkahuuj0793-create/yinyue202608/blob/main/20260821-43j45e40.md'>大团联袂！舞蹈诗剧《只此青绿》千场大秀金秋亮相“水立方”</a></p>
+
+<h3>申请美国大学的外国学生出现近十年来最大降幅</h3>
+
+<p><a href='https://github.com/hevwybsv-art/ziran202607/blob/main/20260812-dewosfdq.md'>申请美国大学的外国学生出现近十年来最大降幅</a></p>
+
+<h3>8月21日热门中概股多数下跌，纳斯达克中国金龙指数（HXC）跌1.15%。</h3>
+
+<p><a href='https://github.com/hubbygoing144-wq/ziran202607/blob/main/2104_659.md'>8月21日热门中概股多数下跌，纳斯达克中国金龙指数（HXC）跌1.15%。</a></p>
+
+<h3>申请美国大学的外国学生出现近十年来最大降幅</h3>
+
+<p><a href='https://github.com/joannaaarnamjvstl1553-ship-it/shenghuo202608/blob/main/20260802_g3vk0.md'>申请美国大学的外国学生出现近十年来最大降幅</a></p>
+
+<h3>美军中央司令部称“华盛顿”号航母已部署在中东</h3>
+
+<p><a href='https://github.com/johannaamandagxsalk7151-pixel/yinyue202608/blob/main/20260807-b48x6c2u.md'>美军中央司令部称“华盛顿”号航母已部署在中东</a></p>
+
+<h3>贝森特：美国加大对伊朗经济施压，大概率不会重启大规模对伊作战</h3>
+
+<p><a href='https://github.com/kendalljuliettedvcyso3265-web/guangming202608/blob/main/20260808-7kzlsczd.md'>贝森特：美国加大对伊朗经济施压，大概率不会重启大规模对伊作战</a></p>
+
+<h3>特朗普政府推进加密货币新规，关键法案在国会受阻</h3>
+
+<p><a href='https://github.com/kensleyraynaunuoun5699-lab/wenhua202608/blob/main/20260810-ajfaxhol.md'>特朗普政府推进加密货币新规，关键法案在国会受阻</a></p>
+
+<h3>A股缩量普涨，释放什么信号？</h3>
+
+<p><a href='https://github.com/lindsayawren-sys/20260718_05/blob/main/20260807-myxu5vg6.md'>A股缩量普涨，释放什么信号？</a></p>
+
+<h3>美财长贝森特在债券市场宣告妥协</h3>
+
+<p><a href='https://github.com/lindsayawren-sys/20260718_12/blob/main/20260726_abxas.md'>美财长贝森特在债券市场宣告妥协</a></p>
+
+<h3>阿克托斯资本同意收购亚特兰大猎鹰队10%股份，球队估值106亿美元</h3>
+
+<p><a href='https://github.com/lindsayawren-sys/enzlaiqozna/blob/main/20260706_o2fqt.md'>阿克托斯资本同意收购亚特兰大猎鹰队10%股份，球队估值106亿美元</a></p>
+
+<h3>美国下周将揭晓孤立伊朗经济的计划</h3>
+
+<p><a href='https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/menkua.md'>美国下周将揭晓孤立伊朗经济的计划</a></p>
+
+<h3>A股缩量普涨，释放什么信号？</h3>
+
+<p><a href='https://github.com/linhh234/20260718_04/blob/main/20260809-rshxqpl4.md'>A股缩量普涨，释放什么信号？</a></p>
+
+<h3>债券市场与六旗乐园的相通之处</h3>
+
+<p><a href='https://github.com/linhh234/20260718_11/blob/main/20260729_ago1r.md'>债券市场与六旗乐园的相通之处</a></p>
+
+<h3>A股缩量普涨，释放什么信号？</h3>
+
+<p><a href='https://github.com/linhh234/20260718_17/blob/main/20260819-ez96raap.md'>A股缩量普涨，释放什么信号？</a></p>
+
+<h3>大华股份2026半年报出炉</h3>
+
+<p><a href='https://github.com/malaysiamileyetmynx3953-sketch/guangming202608/blob/main/20260818-fhy2lm79.md'>大华股份2026半年报出炉</a></p>
+
+<h3>英国银行业巨头联名致信警告，不要进一步提高税收</h3>
+
+<p><a href='https://github.com/mejiastanle/20260718_03/blob/main/20260821-30cyfz57.md'>英国银行业巨头联名致信警告，不要进一步提高税收</a></p>
+
+<h3>债券收益率是“房间里的大象” 股票投资者却对其视而不见</h3>
+
+<p><a href='https://github.com/mejiastanle/20260718_10/blob/main/20260810-pdlm1ay1.md'>债券收益率是“房间里的大象” 股票投资者却对其视而不见</a></p>
+
+<h3>歌剧《卡门》中文版厦门上演 97岁指挥家郑小瑛执棒</h3>
+
+<p><a href='https://github.com/mejiastanle/20260718_17/blob/main/20260730_lxvik.md'>歌剧《卡门》中文版厦门上演 97岁指挥家郑小瑛执棒</a></p>
+
+<h3>AI数据中心引发普遍不满：从商业广告到大选，抗议之声四处蔓延</h3>
+
+<p><a href='https://github.com/mikaylaryleeeschkq9257-dot/caodi202608/blob/main/20260817-eo45k2i4.md'>AI数据中心引发普遍不满：从商业广告到大选，抗议之声四处蔓延</a></p>
+
+<h3>歌剧《卡门》中文版厦门上演 97岁指挥家郑小瑛执棒</h3>
+
+<p><a href='https://github.com/miot0t-create/fangchan202608/blob/main/20260807-5g78au04.md'>歌剧《卡门》中文版厦门上演 97岁指挥家郑小瑛执棒</a></p>
+
+<h3>南钢股份上半年营收311.3亿元 净利同比降9.64%</h3>
+
+<p><a href='https://github.com/miot0t-create/shishang202608/blob/main/20260802_tw6i8.md'>南钢股份上半年营收311.3亿元 净利同比降9.64%</a></p>
+
+<h3>沃尔玛美区同店销售六年最慢，股价重挫超9%</h3>
+
+<p><a href='https://github.com/nadialylaouliba3944-blip/guangming202608/blob/main/20260807-jyxnooui.md'>沃尔玛美区同店销售六年最慢，股价重挫超9%</a></p>
+
+<h3>8月21日外盘头条：贝森特称美国大概率不会重启大规模对伊作战 沃尔玛股价重挫超9%</h3>
+
+<p><a href='https://github.com/raeganazariahqswbdr1627-cpu/wenhua202608/blob/main/20260809-453fx6d7.md'>8月21日外盘头条：贝森特称美国大概率不会重启大规模对伊作战 沃尔玛股价重挫超9%</a></p>
+
+<h3>花旗将美元短期看法转为看空，此前已就美债回购风险发出警告</h3>
+
+<p><a href='https://github.com/ramonaviviansbkhfb9905-create/ziran202608/blob/main/20260811-ztfu2g87.md'>花旗将美元短期看法转为看空，此前已就美债回购风险发出警告</a></p>
+
+<h3>小摩走访弗里蒙特：特斯拉故意不加Model Y，Robotaxi赌注押在Cybercab</h3>
+
+<p><a href='https://github.com/theahayleendnoqd6760-ux/shenghuo202608/blob/main/20260810-ke37ib8s.md'>小摩走访弗里蒙特：特斯拉故意不加Model Y，Robotaxi赌注押在Cybercab</a></p>
+
+<h3>贝森特称可能进一步加大美债回购力度 并将公布新的财政举措</h3>
+
+<p><a href='https://github.com/ticeilohoiyoh-afk/yinyue202607/blob/main/1808_477.md'>贝森特称可能进一步加大美债回购力度 并将公布新的财政举措</a></p>
+
+<h3>英国银行业巨头联名致信警告，不要进一步提高税收</h3>
+
+<p><a href='https://github.com/adaleefayeocgzyd5066-lang/wenhua202608/blob/main/20260806-0lrf54ux.md'>英国银行业巨头联名致信警告，不要进一步提高税收</a></p>
+
+<h3>伊朗外交部谴责美国对伊实施新一轮经济制裁</h3>
+
+<p><a href='https://github.com/adelinafreyjatlhgja6901-tech/ziran202608/blob/main/20260809-8eiqa3ay.md'>伊朗外交部谴责美国对伊实施新一轮经济制裁</a></p>
+
+<h3>如何扑灭由二战遗留弹药助长的野火？试试无人驾驶坦克</h3>
+
+<p><a href='https://github.com/adleycatalinawxxnqj0188-byte/keji202608/blob/main/20260812-3inm5bpe.md'>如何扑灭由二战遗留弹药助长的野火？试试无人驾驶坦克</a></p>
+
+<h3>3.19亿股新股解禁，SpaceX股价回落至发行价附近</h3>
+
+<p><a href='https://github.com/andinoaopmzqx2364-cpu/yinyue202608/blob/main/20260809-3xu7jlj0.md'>3.19亿股新股解禁，SpaceX股价回落至发行价附近</a></p>
+
+<h3>医院通报“孕妇因医生疏忽误服液体”：涉事医生已暂停执业</h3>
+
+<p><a href='https://github.com/asadw0454/20260718_02/blob/main/20260802_zjyup.md'>医院通报“孕妇因医生疏忽误服液体”：涉事医生已暂停执业</a></p>
+
+<h3>英国银行业巨头联名致信警告，不要进一步提高税收</h3>
+
+<p><a href='https://github.com/asadw0454/20260718_09/blob/main/20260722_e3u97.md'>英国银行业巨头联名致信警告，不要进一步提高税收</a></p>
+
+<h3>大华股份2026半年报出炉</h3>
+
+<p><a href='https://github.com/asadw0454/20260718_15/blob/main/20260812-lrgh7fo6.md'>大华股份2026半年报出炉</a></p>
+
+<h3>小摩走访弗里蒙特：特斯拉故意不加Model Y，Robotaxi赌注押在Cybercab</h3>
+
+<p><a href='https://github.com/asadw0454/2026lanyue/blob/main/20260814-zvmq37hc.md'>小摩走访弗里蒙特：特斯拉故意不加Model Y，Robotaxi赌注押在Cybercab</a></p>
+
+<h3>英国银行业巨头联名致信警告，不要进一步提高税收</h3>
+
+<p><a href='https://github.com/b6y02faw-maker/caodi202608/blob/main/20260807-f1ioflo8.md'>英国银行业巨头联名致信警告，不要进一步提高税收</a></p>
+
+<h3>美国股市：标普500重拾跌势，国债回购提振效应消退</h3>
+
+<p><a href='https://github.com/b6y02faw-maker/qiche202608/blob/main/20260803_eqzju.md'>美国股市：标普500重拾跌势，国债回购提振效应消退</a></p>
+
+<h3>南钢股份上半年营收311.3亿元 净利同比降9.64%</h3>
+
+<p><a href='https://github.com/b6y02faw-maker/ziran202608/blob/main/0601_012.md'>南钢股份上半年营收311.3亿元 净利同比降9.64%</a></p>
+
+<h3>美国债市：国债下跌，曲线中段与长端领跌，回吐回购公告部分涨幅</h3>
+
+<p><a href='https://github.com/bdor2v-code/keji202608/blob/main/20260820-8b75ll7r.md'>美国债市：国债下跌，曲线中段与长端领跌，回吐回购公告部分涨幅</a></p>
+
+<h3>欧洲股市小幅收低 延续2023年以来最长连跌走势</h3>
+
+<p><a href='https://github.com/bdor2v-code/yinyue202608/blob/main/20260818-buvvqkaw.md'>欧洲股市小幅收低 延续2023年以来最长连跌走势</a></p>
+
+<h3>六国棋手“云端”对弈 重庆武隆“白马山杯”东南亚围棋邀请赛开幕</h3>
+
+<p><a href='https://github.com/bernettcoia/20260718_05/blob/main/20260731_9o0nn.md'>六国棋手“云端”对弈 重庆武隆“白马山杯”东南亚围棋邀请赛开幕</a></p>
+
+<h3>阿里财报,透露AI新进展!</h3>
+
+<p><a href='https://github.com/bernettcoia/20260718_11/blob/main/20260820-rseg6pal.md'>阿里财报,透露AI新进展!</a></p>
+
+<h3>8月21日外盘头条：贝森特称美国大概率不会重启大规模对伊作战 沃尔玛股价重挫超9%</h3>
+
+<p><a href='https://github.com/bernettcoia/20260718_18/blob/main/20260810-jn17pcng.md'>8月21日外盘头条：贝森特称美国大概率不会重启大规模对伊作战 沃尔玛股价重挫超9%</a></p>
+
+<h3>折叠屏iPad项目流产：苹果最后还是选择砍掉</h3>
+
+<p><a href='https://github.com/dmwke4-ops/jiankang202608/blob/main/20260815-vb9u4j9b.md'>折叠屏iPad项目流产：苹果最后还是选择砍掉</a></p>
+
+<h3>纳斯达克100指数恐五连跌 油价、收益率攀升令美股承压</h3>
+
+<p><a href='https://github.com/dmwke4-ops/wenhua202608/blob/main/20260815-6tfstkwj.md'>纳斯达克100指数恐五连跌 油价、收益率攀升令美股承压</a></p>
+
+<h3>美国股市：标普500重拾跌势，国债回购提振效应消退</h3>
+
+<p><a href='https://github.com/ero9esx-creator/fangchan202608/blob/main/20260814-c9h06558.md'>美国股市：标普500重拾跌势，国债回购提振效应消退</a></p>
+
+<h3>贝森特称财政部债券回购规模或将超过40亿美元</h3>
+
+<p><a href='https://github.com/ero9esx-creator/shishang202608/blob/main/20260813-d3t10sni.md'>贝森特称财政部债券回购规模或将超过40亿美元</a></p>
+
+<h3>美国住房负担能力指数自2023年以来首次恶化</h3>
+
+<p><a href='https://github.com/fatimarubytiphxr0019-glitch/guangming202608/blob/main/20260817-28p1eyfc.md'>美国住房负担能力指数自2023年以来首次恶化</a></p>
+
+<h3>餐饮黄牛高价倒卖排号是否涉嫌违法？律师解读来了</h3>
+
+<p><a href='https://github.com/helenaddysonkahuuj0793-create/wenhua202608/blob/main/20260819-a8zfgzxo.md'>餐饮黄牛高价倒卖排号是否涉嫌违法？律师解读来了</a></p>
+
+<h3>债券市场与六旗乐园的相通之处</h3>
+
+<p><a href='https://github.com/hevwybsv-art/yinyue202607/blob/main/20260812-xo3ij95w.md'>债券市场与六旗乐园的相通之处</a></p>
+
+<h3>小摩走访弗里蒙特：特斯拉故意不加Model Y，Robotaxi赌注押在Cybercab</h3>
+
+<p><a href='https://github.com/hubbygoing144-wq/ziran202607/blob/main/1516_528.md'>小摩走访弗里蒙特：特斯拉故意不加Model Y，Robotaxi赌注押在Cybercab</a></p>
+
+<h3>花旗将美元短期看法转为看空，此前已就美债回购风险发出警告</h3>
+
+<p><a href='https://github.com/joannaaarnamjvstl1553-ship-it/guangming202608/blob/main/0521_084.md'>花旗将美元短期看法转为看空，此前已就美债回购风险发出警告</a></p>
+
+<h3>德国今年4月以来约有1.4万人因高温相关因素死亡</h3>
+
+<p><a href='https://github.com/johannaamandagxsalk7151-pixel/wenhua202608/blob/main/20260803_2nsy7.md'>德国今年4月以来约有1.4万人因高温相关因素死亡</a></p>
+
+<h3>歌剧《卡门》中文版厦门上演 97岁指挥家郑小瑛执棒</h3>
+
+<p><a href='https://github.com/kategeorgiaxtgxfl9771-lab/ziran202608/blob/main/20260807-37uwmugy.md'>歌剧《卡门》中文版厦门上演 97岁指挥家郑小瑛执棒</a></p>
+
+<h3>8月21日美股收盘：长债收益率反弹抹去回购利好，沃尔玛暴跌近9%拖累道指重挫超700点</h3>
+
+<p><a href='https://github.com/kensleyraynaunuoun5699-lab/keji202608/blob/main/20260808-nmfsfu3q.md'>8月21日美股收盘：长债收益率反弹抹去回购利好，沃尔玛暴跌近9%拖累道指重挫超700点</a></p>
+
+<h3>阿里财报,透露AI新进展!</h3>
+
+<p><a href='https://github.com/lindsayawren-sys/20260718_04/blob/main/20260729_9tn0f.md'>阿里财报,透露AI新进展!</a></p>
+
+<h3>AI数据中心引发普遍不满：从商业广告到大选，抗议之声四处蔓延</h3>
+
+<p><a href='https://github.com/lindsayawren-sys/20260718_10/blob/main/20260819-dcvty6tm.md'>AI数据中心引发普遍不满：从商业广告到大选，抗议之声四处蔓延</a></p>
+
+<h3>8月21日美股收盘：长债收益率反弹抹去回购利好，沃尔玛暴跌近9%拖累道指重挫超700点</h3>
+
+<p><a href='https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/20260723_7f0ni.md'>8月21日美股收盘：长债收益率反弹抹去回购利好，沃尔玛暴跌近9%拖累道指重挫超700点</a></p>
+
+<h3>英国银行业巨头联名致信警告，不要进一步提高税收</h3>
+
+<p><a href='https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/20260715_3iatw.md'>英国银行业巨头联名致信警告，不要进一步提高税收</a></p>
+
+<h3>上市公司组织百人“抢公章”？ 海威华芯控制权纠纷升级</h3>
+
+<p><a href='https://github.com/linhh234/20260718_03/blob/main/20260801_l35b2.md'>上市公司组织百人“抢公章”？ 海威华芯控制权纠纷升级</a></p>
+
+<h3>美国住房负担能力指数自2023年以来首次恶化</h3>
+
+<p><a href='https://github.com/linhh234/20260718_10/blob/main/20260719_kfgt9.md'>美国住房负担能力指数自2023年以来首次恶化</a></p>
+
+<h3>南钢股份上半年营收311.3亿元 净利同比降9.64%</h3>
+
+<p><a href='https://github.com/linhh234/20260718_16/blob/main/20260811-jtt2c287.md'>南钢股份上半年营收311.3亿元 净利同比降9.64%</a></p>
+
+<h3>餐饮黄牛高价倒卖排号是否涉嫌违法？律师解读来了</h3>
+
+<p><a href='https://github.com/linhh234/we561z4ja/blob/main/20260820-n55h07ni.md'>餐饮黄牛高价倒卖排号是否涉嫌违法？律师解读来了</a></p>
+
+<h3>AI数据中心引发普遍不满：从商业广告到大选，抗议之声四处蔓延</h3>
+
+<p><a href='https://github.com/mejiastanle/20260718_02/blob/main/20260813-12awgife.md'>AI数据中心引发普遍不满：从商业广告到大选，抗议之声四处蔓延</a></p>
+
+<h3>摩根大通警告：财政部加倍回购长债，可能抬升而非压低收益率</h3>
+
+<p><a href='https://github.com/mejiastanle/20260718_09/blob/main/20260802_v29vb.md'>摩根大通警告：财政部加倍回购长债，可能抬升而非压低收益率</a></p>
+
+<h3>3.19亿股新股解禁，SpaceX股价回落至发行价附近</h3>
+
+<p><a href='https://github.com/mejiastanle/20260718_16/blob/main/20260722_9ngjg.md'>3.19亿股新股解禁，SpaceX股价回落至发行价附近</a></p>
+
+<h3>贝森特：美国加大对伊朗经济施压，大概率不会重启大规模对伊作战</h3>
+
+<p><a href='https://github.com/mejiastanle/msdfe52gs/blob/main/20260801_gx1fb.md'>贝森特：美国加大对伊朗经济施压，大概率不会重启大规模对伊作战</a></p>
+
+<h3>美国股市：标普500重拾跌势，国债回购提振效应消退</h3>
+
+<p><a href='https://github.com/miot0t-create/caodi202608/blob/main/20260813-1lo8kq1s.md'>美国股市：标普500重拾跌势，国债回购提振效应消退</a></p>
+
+<h3>AI数据中心引发普遍不满：从商业广告到大选，抗议之声四处蔓延</h3>
+
+<p><a href='https://github.com/miot0t-create/qiche202608/blob/main/20260811-j3xeg5af.md'>AI数据中心引发普遍不满：从商业广告到大选，抗议之声四处蔓延</a></p>
+
+<h3>花旗将美元短期看法转为看空，此前已就美债回购风险发出警告</h3>
+
+<p><a href='https://github.com/miot0t-create/ziran202608/blob/main/20260809-yipjpjnw.md'>花旗将美元短期看法转为看空，此前已就美债回购风险发出警告</a></p>
+
+<h3>美国住房负担能力指数自2023年以来首次恶化</h3>
+
+<p><a href='https://github.com/raeganazariahqswbdr1627-cpu/keji202608/blob/main/20260807-nr0s1b99.md'>美国住房负担能力指数自2023年以来首次恶化</a></p>
+
+<h3>如何扑灭由二战遗留弹药助长的野火？试试无人驾驶坦克</h3>
+
+<p><a href='https://github.com/ramonaviviansbkhfb9905-create/xinwen202608/blob/main/20260810-e1ttbqw7.md'>如何扑灭由二战遗留弹药助长的野火？试试无人驾驶坦克</a></p>
+
+<h3>上市公司组织百人“抢公章”？ 海威华芯控制权纠纷升级</h3>
+
+<p><a href='https://github.com/theahayleendnoqd6760-ux/guangming202608/blob/main/20260808-wpx32px6.md'>上市公司组织百人“抢公章”？ 海威华芯控制权纠纷升级</a></p>
+
+<h3>美财长贝森特在债券市场宣告妥协</h3>
+
+<p><a href='https://github.com/ticeilohoiyoh-afk/shenghuo202607/blob/main/1820_696.md'>美财长贝森特在债券市场宣告妥协</a></p>
+
+<h3>AI数据中心引发普遍不满：从商业广告到大选，抗议之声四处蔓延</h3>
+
+<p><a href='https://github.com/adaleefayeocgzyd5066-lang/keji202608/blob/main/20260802_2smfn.md'>AI数据中心引发普遍不满：从商业广告到大选，抗议之声四处蔓延</a></p>
+
+<h3>医院通报“孕妇因医生疏忽误服液体”：涉事医生已暂停执业</h3>
+
+<p><a href='https://github.com/adelinafreyjatlhgja6901-tech/xinwen202608/blob/main/20260807-rjs72m6h.md'>医院通报“孕妇因医生疏忽误服液体”：涉事医生已暂停执业</a></p>
+
+<h3>南钢股份上半年营收311.3亿元 净利同比降9.64%</h3>
+
+<p><a href='https://github.com/adleycatalinawxxnqj0188-byte/caodi202608/blob/main/20260810-enbb7ecz.md'>南钢股份上半年营收311.3亿元 净利同比降9.64%</a></p>
+
+<h3>欧洲债市：德国国债回吐涨幅 英国国债与美国国债同步下跌</h3>
+
+<p><a href='https://github.com/andinoaopmzqx2364-cpu/shenghuo202608/blob/main/20260820-shdht0cg.md'>欧洲债市：德国国债回吐涨幅 英国国债与美国国债同步下跌</a></p>
+
+<h3>A股缩量普涨，释放什么信号？</h3>
+
+<p><a href='https://github.com/asadw0454/20260718_01/blob/main/20260725_8rmnu.md'>A股缩量普涨，释放什么信号？</a></p>
+
+<h3>贝森特称可能进一步加大美债回购力度 并将公布新的财政举措</h3>
+
+<p><a href='https://github.com/asadw0454/20260718_07/blob/main/20260815-4m1d5sug.md'>贝森特称可能进一步加大美债回购力度 并将公布新的财政举措</a></p>
+
+<h3>特朗普政府推进加密货币新规，关键法案在国会受阻</h3>
+
+<p><a href='https://github.com/asadw0454/20260718_14/blob/main/20260806-b87vn0l7.md'>特朗普政府推进加密货币新规，关键法案在国会受阻</a></p>
+
+<h3>大体重记者跑采访不再愁？记者实测外骨骼机器人</h3>
+
+<p><a href='https://github.com/asadw0454/2026lanyue/blob/main/20260714_5vudj.md'>大体重记者跑采访不再愁？记者实测外骨骼机器人</a></p>
+
+<h3>如何扑灭由二战遗留弹药助长的野火？试试无人驾驶坦克</h3>
+
+<p><a href='https://github.com/asadw0454/2026mingyue/blob/main/20260810-gzohin1m.md'>如何扑灭由二战遗留弹药助长的野火？试试无人驾驶坦克</a></p>
+
+<h3>阿克托斯资本同意收购亚特兰大猎鹰队10%股份，球队估值106亿美元</h3>
+
+<p><a href='https://github.com/b6y02faw-maker/lvyou202608/blob/main/20260812-0h2oun6o.md'>阿克托斯资本同意收购亚特兰大猎鹰队10%股份，球队估值106亿美元</a></p>
+
+<h3>欧洲债市：德国国债回吐涨幅 英国国债与美国国债同步下跌</h3>
+
+<p><a href='https://github.com/b6y02faw-maker/youxi202608/blob/main/20260810-e4d0omfg.md'>欧洲债市：德国国债回吐涨幅 英国国债与美国国债同步下跌</a></p>
+
+<h3>欧洲债市：德国国债回吐涨幅 英国国债与美国国债同步下跌</h3>
+
+<p><a href='https://github.com/bdor2v-code/jiaoyu202608/blob/main/20260808-r7qequmn.md'>欧洲债市：德国国债回吐涨幅 英国国债与美国国债同步下跌</a></p>
+
+<h3>Anthropic首次公开募股规模料追平甚至赶超SpaceX创下的纪录</h3>
+
+<p><a href='https://github.com/bdor2v-code/xinwen202608/blob/main/20260807-hy57d4v1.md'>Anthropic首次公开募股规模料追平甚至赶超SpaceX创下的纪录</a></p>
+
+<h3>A股缩量普涨，释放什么信号？</h3>
+
+<p><a href='https://github.com/bernettcoia/20260718_04/blob/main/20260722_oz7n6.md'>A股缩量普涨，释放什么信号？</a></p>
+
+<h3>“别太贪婪”——40年债市老将把风险敞口降至十余年最低</h3>
+
+<p><a href='https://github.com/bernettcoia/20260718_10/blob/main/20260812-w1uxjuh7.md'>“别太贪婪”——40年债市老将把风险敞口降至十余年最低</a></p>
+
+<h3>阿里财报,透露AI新进展!</h3>
+
+<p><a href='https://github.com/bernettcoia/20260718_17/blob/main/20260802_j3zgc.md'>阿里财报,透露AI新进展!</a></p>
+
+<h3>特朗普称白宫立法事务主任布雷德将离职</h3>
+
+<p><a href='https://github.com/dmwke4-ops/guangming202608/blob/main/20260802_o5ett.md'>特朗普称白宫立法事务主任布雷德将离职</a></p>
+
+<h3>大华股份2026半年报出炉</h3>
+
+<p><a href='https://github.com/dmwke4-ops/tiyu202608/blob/main/0507_795.md'>大华股份2026半年报出炉</a></p>
+
+<h3>美国下周将揭晓孤立伊朗经济的计划</h3>
+
+<p><a href='https://github.com/ero9esx-creator/caodi202608/blob/main/20260819-mpxc2nbg.md'>美国下周将揭晓孤立伊朗经济的计划</a></p>
+
+<h3>胡塞武装称对沙特发动无人机袭击</h3>
+
+<p><a href='https://github.com/ero9esx-creator/qiche202608/blob/main/20260817-l0wb11ov.md'>胡塞武装称对沙特发动无人机袭击</a></p>
+
+<h3>南钢股份上半年营收311.3亿元 净利同比降9.64%</h3>
+
+<p><a href='https://github.com/ero9esx-creator/ziran202608/blob/main/20260815-vuh1hd3e.md'>南钢股份上半年营收311.3亿元 净利同比降9.64%</a></p>
+
+<h3>大团联袂！舞蹈诗剧《只此青绿》千场大秀金秋亮相“水立方”</h3>
+
+<p><a href='https://github.com/helenaddysonkahuuj0793-create/keji202608/blob/main/20260817-6dmpkiow.md'>大团联袂！舞蹈诗剧《只此青绿》千场大秀金秋亮相“水立方”</a></p>
+
+<h3>3.19亿股新股解禁，SpaceX股价回落至发行价附近</h3>
+
+<p><a href='https://github.com/hevwybsv-art/shenghuo202607/blob/main/20260813-dddu9x69.md'>3.19亿股新股解禁，SpaceX股价回落至发行价附近</a></p>
+
+<h3>圣路易斯联储行长谈及债市动荡 称市场并未质疑美联储信誉</h3>
+
+<p><a href='https://github.com/hubbygoing144-wq/yinyue202607/blob/main/1604_122.md'>圣路易斯联储行长谈及债市动荡 称市场并未质疑美联储信誉</a></p>
+
+<h3>特朗普政府推进加密货币新规，关键法案在国会受阻</h3>
+
+<p><a href='https://github.com/irenereaganxuskfc8259-del/yinyue202608/blob/main/20260820-90b2vs2v.md'>特朗普政府推进加密货币新规，关键法案在国会受阻</a></p>
+
+<h3>特朗普政府推进加密货币新规，关键法案在国会受阻</h3>
+
+<p><a href='https://github.com/johannaamandagxsalk7151-pixel/keji202608/blob/main/0516_642.md'>特朗普政府推进加密货币新规，关键法案在国会受阻</a></p>
+
+<h3>小摩走访弗里蒙特：特斯拉故意不加Model Y，Robotaxi赌注押在Cybercab</h3>
+
+<p><a href='https://github.com/kategeorgiaxtgxfl9771-lab/xinwen202608/blob/main/20260803_8grce.md'>小摩走访弗里蒙特：特斯拉故意不加Model Y，Robotaxi赌注押在Cybercab</a></p>
+
+<h3>AI数据中心引发普遍不满：从商业广告到大选，抗议之声四处蔓延</h3>
+
+<p><a href='https://github.com/kensleyraynaunuoun5699-lab/caodi202608/blob/main/20260807-6ch8usqs.md'>AI数据中心引发普遍不满：从商业广告到大选，抗议之声四处蔓延</a></p>
+
+<h3>欧洲股市小幅收低 延续2023年以来最长连跌走势</h3>
+
+<p><a href='https://github.com/lindsayawren-sys/20260718_03/blob/main/20260719_96jh9.md'>欧洲股市小幅收低 延续2023年以来最长连跌走势</a></p>
+
+<h3>申请美国大学的外国学生出现近十年来最大降幅</h3>
+
+<p><a href='https://github.com/lindsayawren-sys/20260718_09/blob/main/20260811-hr11z6uo.md'>申请美国大学的外国学生出现近十年来最大降幅</a></p>
+
+<h3>伊朗外交部谴责美国对伊实施新一轮经济制裁</h3>
+
+<p><a href='https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/20260711_3b01m.md'>伊朗外交部谴责美国对伊实施新一轮经济制裁</a></p>
+
+<h3>胡塞武装称对沙特发动无人机袭击</h3>
+
+<p><a href='https://github.com/lindsayawren-sys/ii87wewoqi9/blob/main/20260709_p58m7.md'>胡塞武装称对沙特发动无人机袭击</a></p>
+
+<h3>8月21日热门中概股多数下跌，纳斯达克中国金龙指数（HXC）跌1.15%。</h3>
+
+<p><a href='https://github.com/linhh234/20260718_02/blob/main/20260724_37s7i.md'>8月21日热门中概股多数下跌，纳斯达克中国金龙指数（HXC）跌1.15%。</a></p>
+
+<h3>债券市场与六旗乐园的相通之处</h3>
+
+<p><a href='https://github.com/linhh234/20260718_08/blob/main/20260813-n2twwe40.md'>债券市场与六旗乐园的相通之处</a></p>
+
+<h3>上市公司组织百人“抢公章”？ 海威华芯控制权纠纷升级</h3>
+
+<p><a href='https://github.com/linhh234/20260718_15/blob/main/20260803_ww9fl.md'>上市公司组织百人“抢公章”？ 海威华芯控制权纠纷升级</a></p>
+
+<h3>“别太贪婪”——40年债市老将把风险敞口降至十余年最低</h3>
+
+<p><a href='https://github.com/linhh234/we561z4ja/blob/main/20260714_ww1tx.md'>“别太贪婪”——40年债市老将把风险敞口降至十余年最低</a></p>
+
+<h3>欧洲股市小幅收低 延续2023年以来最长连跌走势</h3>
+
+<p><a href='https://github.com/mejiastanle/20260718_01/blob/main/20260806_x78zf.md'>欧洲股市小幅收低 延续2023年以来最长连跌走势</a></p>
+
+<h3>8月21日美股成交额前20：美光收涨3.97%，公司宣布成立Micron Research Labs，计划未来十年投入100亿美元</h3>
+
+<p><a href='https://github.com/mejiastanle/20260718_08/blob/main/20260725_54pxk.md'>8月21日美股成交额前20：美光收涨3.97%，公司宣布成立Micron Research Labs，计划未来十年投入100亿美元</a></p>
+
+<h3>8月21日美股成交额前20：美光收涨3.97%，公司宣布成立Micron Research Labs，计划未来十年投入100亿美元</h3>
+
+<p><a href='https://github.com/mejiastanle/20260718_14/blob/main/20260814-zc024mnh.md'>8月21日美股成交额前20：美光收涨3.97%，公司宣布成立Micron Research Labs，计划未来十年投入100亿美元</a></p>
+
+<h3>小摩走访弗里蒙特：特斯拉故意不加Model Y，Robotaxi赌注押在Cybercab</h3>
+
+<p><a href='https://github.com/mejiastanle/msdfe52gs/blob/main/20260712_7alou.md'>小摩走访弗里蒙特：特斯拉故意不加Model Y，Robotaxi赌注押在Cybercab</a></p>
+
+<h3>8月21日美股成交额前20：美光收涨3.97%，公司宣布成立Micron Research Labs，计划未来十年投入100亿美元</h3>
+
+<p><a href='https://github.com/mikaylaryleeeschkq9257-dot/ziran202608/blob/main/20260816-xbhp6tfp.md'>8月21日美股成交额前20：美光收涨3.97%，公司宣布成立Micron Research Labs，计划未来十年投入100亿美元</a></p>
+
+<h3>英国银行业巨头联名致信警告，不要进一步提高税收</h3>
+
+<p><a href='https://github.com/miot0t-create/lvyou202608/blob/main/20260815-p8bwx7fb.md'>英国银行业巨头联名致信警告，不要进一步提高税收</a></p>
+
+<h3>美国债市：国债下跌，曲线中段与长端领跌，回吐回购公告部分涨幅</h3>
+
+<p><a href='https://github.com/miot0t-create/youxi202608/blob/main/20260815-02oe7xuo.md'>美国债市：国债下跌，曲线中段与长端领跌，回吐回购公告部分涨幅</a></p>
+
+<h3>餐饮黄牛高价倒卖排号是否涉嫌违法？律师解读来了</h3>
+
+<p><a href='https://github.com/raeganazariahqswbdr1627-cpu/caodi202608/blob/main/20260803_ju5zr.md'>餐饮黄牛高价倒卖排号是否涉嫌违法？律师解读来了</a></p>
+
+<h3>摩根大通警告：财政部加倍回购长债，可能抬升而非压低收益率</h3>
+
+<p><a href='https://github.com/ramonaviviansbkhfb9905-create/shenghuo202608/blob/main/20260808-rqzlrmh3.md'>摩根大通警告：财政部加倍回购长债，可能抬升而非压低收益率</a></p>
+
+<h3>8月21日热门中概股多数下跌，纳斯达克中国金龙指数（HXC）跌1.15%。</h3>
+
+<p><a href='https://github.com/stellakhaleesikpzujq5409-blip/ziran202608/blob/main/20260807-i29i2phr.md'>8月21日热门中概股多数下跌，纳斯达克中国金龙指数（HXC）跌1.15%。</a></p>
+
+<h3>8月21日美股收盘：长债收益率反弹抹去回购利好，沃尔玛暴跌近9%拖累道指重挫超700点</h3>
+
+<p><a href='https://github.com/ticeilohoiyoh-afk/guangming202607/blob/main/1920_861.md'>8月21日美股收盘：长债收益率反弹抹去回购利好，沃尔玛暴跌近9%拖累道指重挫超700点</a></p>
+
+<h3>8月21日美股成交额前20：美光收涨3.97%，公司宣布成立Micron Research Labs，计划未来十年投入100亿美元</h3>
+
+<p><a href='https://github.com/adelinafreyjatlhgja6901-tech/shenghuo202608/blob/main/20260803_ocr1k.md'>8月21日美股成交额前20：美光收涨3.97%，公司宣布成立Micron Research Labs，计划未来十年投入100亿美元</a></p>
+
+<h3>8月21日美股收盘：长债收益率反弹抹去回购利好，沃尔玛暴跌近9%拖累道指重挫超700点</h3>
+
+<p><a href='https://github.com/adelynmikaelakcgnmt0762-spec/yinyue202608/blob/main/20260808-uqu18bfr.md'>8月21日美股收盘：长债收益率反弹抹去回购利好，沃尔玛暴跌近9%拖累道指重挫超700点</a></p>
+
+<h3>南钢股份上半年营收311.3亿元 净利同比降9.64%</h3>
+
+<p><a href='https://github.com/andinoaopmzqx2364-cpu/guangming202608/blob/main/20260815-2gj8h6ry.md'>南钢股份上半年营收311.3亿元 净利同比降9.64%</a></p>
+
+<h3>3.19亿股新股解禁，SpaceX股价回落至发行价附近</h3>
+
+<p><a href='https://github.com/annikaoakleighzinjiu1817-prog/xinwen202608/blob/main/20260820-oh3hg6wx.md'>3.19亿股新股解禁，SpaceX股价回落至发行价附近</a></p>
+
+<h3>Anthropic首次公开募股规模料追平甚至赶超SpaceX创下的纪录</h3>
+
+<p><a href='https://github.com/asadw0454/20260718_06/blob/main/20260808-a7vsplue.md'>Anthropic首次公开募股规模料追平甚至赶超SpaceX创下的纪录</a></p>
+
+<h3>英国银行业巨头联名致信警告，不要进一步提高税收</h3>
+
+<p><a href='https://github.com/asadw0454/20260718_13/blob/main/20260727_cs2zt.md'>英国银行业巨头联名致信警告，不要进一步提高税收</a></p>
+
+<h3>圣路易斯联储行长谈及债市动荡 称市场并未质疑美联储信誉</h3>
+
+<p><a href='https://github.com/asadw0454/2026lanyue/blob/main/20260708_sei9o.md'>圣路易斯联储行长谈及债市动荡 称市场并未质疑美联储信誉</a></p>
+
+<h3>AI数据中心引发普遍不满：从商业广告到大选，抗议之声四处蔓延</h3>
+
+<p><a href='https://github.com/asadw0454/2026mingyue/blob/main/20260713_gcblu.md'>AI数据中心引发普遍不满：从商业广告到大选，抗议之声四处蔓延</a></p>
 
 <h2>外部参考</h2>
 
-<h3>国家发展改革委主任郑栅洁主持召开民营企业座谈会 围绕稳定经济运行促进有效投资听取意见建议</h3>
+<h3>8月21日美股成交额前20：美光收涨3.97%，公司宣布成立Micron Research Labs，计划未来十年投入100亿美元</h3>
 
-<p><a>http://www.blog.shandonglyxcl.cn/Article/details/80160960.sHtML</a></p>
+<p><a>http://m.blog.jhlgscfw.cn/Article/details/42058651.sHtML</a></p>
 
-<h3>阿里财报,透露AI新进展!</h3>
+<h3>8月21日外盘头条：贝森特称美国大概率不会重启大规模对伊作战 沃尔玛股价重挫超9%</h3>
 
-<p><a>http://www.diczs.com.cn/about/1323577.html</a></p>
-
-<h3>上市公司组织百人“抢公章”？ 海威华芯控制权纠纷升级</h3>
-
-<p><a>http://www.blog.bjpbkw.cn/Article/02795219.sHtML</a></p>
-
-<h3>贝森特称可能进一步加大美债回购力度 并将公布新的财政举措</h3>
-
-<p><a>http://wap.blog.jhlgscfw.cn/Article/details/80678899.sHtML</a></p>
-
-<h3>迪尔公司营收攀升，利润实现增长</h3>
-
-<p><a>http://www.blog.cyxkjyxgs.cn/Article/details/16469781.sHtML</a></p>
-
-<h3>14国华裔青少年陕西研学之旅在西安落幕</h3>
-
-<p><a>http://www.bbs.tacaishix.cn/Article/details/62762643.sHtML</a></p>
-
-<h3>美联储7月纪要：三人已投票加息，多人警告“通胀若不降就要收紧”</h3>
-
-<p><a>http://www.blog.fstzyy.cn/Article/details/97667621.sHtML</a></p>
-
-<h3>大团联袂！舞蹈诗剧《只此青绿》千场大秀金秋亮相“水立方”</h3>
-
-<p><a>http://www.vroad.net/news/22727050.sHtML</a></p>
-
-<h3>胡塞武装称对沙特发动无人机袭击</h3>
-
-<p><a>http://chongming.mq163.net/Article/details/02373354.sHtML</a></p>
-
-<h3>住房市场持续承压，Hovnanian转亏</h3>
-
-<p><a>http://www.blog.sassa.cn/Article/details/97495914.sHtML</a></p>
-
-<h3>一次性补税8381万！“西北王”金徽酒净利大降28%</h3>
-
-<p><a>http://m.blog.hudee.com.cn/Article/details/75585104.sHtML</a></p>
-
-<h3>德国今年4月以来约有1.4万人因高温相关因素死亡</h3>
-
-<p><a>http://www.baike.dnhxi.cn/Article/details/24909443.sHtML</a></p>
-
-<h3>美军中央司令部称“华盛顿”号航母已部署在中东</h3>
-
-<p><a>http://bbs.blog.bjpbkw.cn/Article/93769026.sHtML</a></p>
-
-<h3>美财长贝森特在债券市场宣告妥协</h3>
-
-<p><a>http://www.blog.kangkuihe.cn/Article/details/93469879.sHtML</a></p>
-
-<h3>餐饮黄牛高价倒卖排号是否涉嫌违法？律师解读来了</h3>
-
-<p><a>http://m.blog.shandonglyxcl.cn/Article/details/64772000.sHtML</a></p>
-
-<h3>旧金山联储行长戴利认为美债市场显示出对美联储政策立场的信任</h3>
-
-<p><a>http://www.vroad.net/news/91240590.sHtML</a></p>
-
-<h3>旧金山联储行长戴利认为美债市场显示出对美联储政策立场的信任</h3>
-
-<p><a>http://www.blog.shandonglyxcl.cn/Article/details/95603384.sHtML</a></p>
-
-<h3>上市公司组织百人“抢公章”？ 海威华芯控制权纠纷升级</h3>
-
-<p><a>http://www.ahoiyom.cn/Article/97854264.sHtML</a></p>
-
-<h3>旧金山联储行长戴利认为美债市场显示出对美联储政策立场的信任</h3>
-
-<p><a>http://www.blog.xinlizixunshi8.cn/Article/details/59319268.sHtML</a></p>
-
-<h3>特朗普称白宫立法事务主任布雷德将离职</h3>
-
-<p><a>http://www.blog.tj-epc.cn/Article/74516268.sHtML</a></p>
-
-<h3>美国“救市”次日，美债又“崩”了</h3>
-
-<p><a>http://www.jnzd.cn/kongbu/0324217.html</a></p>
-
-<h3>大华股份2026半年报出炉</h3>
-
-<p><a>http://bbs.blog.mpgwvc.cn/Article/details/78909193.sHtML</a></p>
-
-<h3>如何扑灭由二战遗留弹药助长的野火？试试无人驾驶坦克</h3>
-
-<p><a>http://m.blog.jhlgscfw.cn/Article/details/34923379.sHtML</a></p>
-
-<h3>歌剧《卡门》中文版厦门上演 97岁指挥家郑小瑛执棒</h3>
-
-<p><a>http://www.cdwqsj.com/kongbu/9570739.html</a></p>
-
-<h3>如何扑灭由二战遗留弹药助长的野火？试试无人驾驶坦克</h3>
-
-<p><a>http://m.blog.cyxkjyxgs.cn/Article/details/24427108.sHtML</a></p>
-
-<h3>医院通报“孕妇因医生疏忽误服液体”：涉事医生已暂停执业</h3>
-
-<p><a>http://www.blog.xy589.cn/Article/details/89283642.sHtML</a></p>
-
-<h3>美国“救市”次日，美债又“崩”了</h3>
-
-<p><a>http://www.lcjuanbanji.com/kongbu/0784892.html</a></p>
-
-<h3>折叠屏iPad项目流产：苹果最后还是选择砍掉</h3>
-
-<p><a>http://5g.blog.tacaishix.cn/Article/details/29642045.sHtML</a></p>
-
-<h3>3.19亿股新股解禁，SpaceX股价回落至发行价附近</h3>
-
-<p><a>http://www.ahoiyom.cn/Article/12005462.sHtML</a></p>
-
-<h3>申请美国大学的外国学生出现近十年来最大降幅</h3>
-
-<p><a>http://www.blog.bjpbkw.cn/Article/05374584.sHtML</a></p>
-
-<h3>受汽油和柴油拉动，加拿大7月生产者价格上涨</h3>
-
-<p><a>http://yjee.com.cn/kongbu/4585312.html</a></p>
-
-<h3>3.19亿股新股解禁，SpaceX股价回落至发行价附近</h3>
-
-<p><a>http://www.sassa.cn/Article/details/10253570.sHtML</a></p>
-
-<h3>住房市场持续承压，Hovnanian转亏</h3>
-
-<p><a>http://bbs.blog.vvcker.cn/Article/details/50770202.sHtML</a></p>
-
-<h3>歌剧《卡门》中文版厦门上演 97岁指挥家郑小瑛执棒</h3>
-
-<p><a>http://www.cdwqsj.com/kongbu/5362558.html</a></p>
-
-<h3>美联储7月纪要：三人已投票加息，多人警告“通胀若不降就要收紧”</h3>
-
-<p><a>http://bbs.blog.hudee.com.cn/Article/details/56420753.sHtML</a></p>
-
-<h3>阿里财报,透露AI新进展!</h3>
-
-<p><a>http://bbs.blog.bjqkly.cn/Article/details/20811846.sHtML</a></p>
-
-<h3>2026年两岸关系研讨会在武汉开幕</h3>
-
-<p><a>http://www.zj-ld.cn/kongbu/8407778.html</a></p>
-
-<h3>美军中央司令部称“华盛顿”号航母已部署在中东</h3>
-
-<p><a>http://www.mpgwvc.cn/Article/details/84699811.sHtML</a></p>
-
-<h3>美债管理策略失去可预测性 投资者警告政府融资成本恐上升</h3>
-
-<p><a>http://www.blog.tacaishix.cn/Article/details/05845085.sHtML</a></p>
-
-<h3>美国下周将揭晓孤立伊朗经济的计划</h3>
-
-<p><a>http://m.blog.xinlizixunshi8.cn/Article/details/57692238.sHtML</a></p>
-
-<h3>餐饮黄牛高价倒卖排号是否涉嫌违法？律师解读来了</h3>
-
-<p><a>http://www.meibaolong.com.cn/kongbu/2844684.html</a></p>
-
-<h3>诺和新元营收超预期、上调业绩指引，领涨欧洲斯托克600指数</h3>
-
-<p><a>http://h5.blog.oilerequation.cn/Article/details/98561031.sHtML</a></p>
-
-<h3>住房市场持续承压，Hovnanian转亏</h3>
-
-<p><a>http://wap.blog.to39.cn/Article/details/30592671.sHtML</a></p>
-
-<h3>英国银行业巨头联名致信警告，不要进一步提高税收</h3>
-
-<p><a>http://www.blog.gnu8k.cn/Article/details/91607106.sHtML</a></p>
+<p><a>http://bbs.blog.keyoure.com.cn/Article/details/47355938.sHtML</a></p>
 
 <h3>六国棋手“云端”对弈 重庆武隆“白马山杯”东南亚围棋邀请赛开幕</h3>
 
-<p><a>http://www.mpgwvc.cn/Article/details/46776722.sHtML</a></p>
+<p><a>http://5g.blog.zbqbg.cn/Article/details/09029724.sHtML</a></p>
 
-<h3>14国华裔青少年陕西研学之旅在西安落幕</h3>
+<h3>大团联袂！舞蹈诗剧《只此青绿》千场大秀金秋亮相“水立方”</h3>
 
-<p><a>http://www.diczs.com.cn/show/1216235.html</a></p>
+<p><a>http://bbs.blog.xy589.cn/Article/details/46769475.sHtML</a></p>
 
-<h3>海拔3500米巅峰对决！拉萨消防比武赛场超燃</h3>
+<h3>沃尔玛美区同店销售六年最慢，股价重挫超9%</h3>
 
-<p><a>http://www.baike.vzetx.cn/Article/details/67714257.sHtML</a></p>
-
-<h3>申请美国大学的外国学生出现近十年来最大降幅</h3>
-
-<p><a>http://m.blog.tacaishix.cn/Article/details/54264769.sHtML</a></p>
-
-<h3>贝森特称可能进一步加大美债回购力度 并将公布新的财政举措</h3>
-
-<p><a>http://www.jnzd.cn/kongbu/3723919.html</a></p>
-
-<h3>阿克托斯资本同意收购亚特兰大猎鹰队10%股份，球队估值106亿美元</h3>
-
-<p><a>http://bbs.blog.tj-epc.cn/Article/42625760.sHtML</a></p>
-
-<h3>贝森特称财政部债券回购规模或将超过40亿美元</h3>
-
-<p><a>http://m.blog.htiut.cn/Article/details/85913379.sHtML</a></p>
-
-<h3>股价跌停，罗普斯金独家回应：公司随行就市购置原材料</h3>
-
-<p><a>http://www.xbshzp.cn/Article/35811157.sHtML</a></p>
+<p><a>http://songjiang.mq163.net/Article/details/63938464.sHtML</a></p>
 
 <h3>英国银行业巨头联名致信警告，不要进一步提高税收</h3>
 
-<p><a>http://m.baike.mzesu.cn/Article/details/92862083.sHtML</a></p>
+<p><a>http://5g.blog.oilerequation.cn/Article/details/05039484.sHtML</a></p>
 
-<h3>美联储7月纪要：三人已投票加息，多人警告“通胀若不降就要收紧”</h3>
+<h3>美国债市：国债下跌，曲线中段与长端领跌，回吐回购公告部分涨幅</h3>
 
-<p><a>http://m.bbs.htiut.cn/Article/details/89232190.sHtML</a></p>
-
-<h3>杰克逊霍尔前瞻：沃什首次主席演讲，市场要的是反应函数，不是支付主题</h3>
-
-<p><a>http://www.blog.gnu8k.cn/Article/details/27594027.sHtML</a></p>
-
-<h3>英国银行业巨头联名致信警告，不要进一步提高税收</h3>
-
-<p><a>http://www.bbs.psptwl.cn/Article/details/64281446.sHtML</a></p>
-
-<h3>美债管理策略失去可预测性 投资者警告政府融资成本恐上升</h3>
-
-<p><a>http://jingan.mq163.net/Article/details/66184952.sHtML</a></p>
-
-<h3>折叠屏iPad项目流产：苹果最后还是选择砍掉</h3>
-
-<p><a>http://www.blog.mpgwvc.cn/Article/details/43517829.sHtML</a></p>
-
-<h3>股价跌停，罗普斯金独家回应：公司随行就市购置原材料</h3>
-
-<p><a>http://www.xy589.cn/Article/76809350.sHtML</a></p>
-
-<h3>贝森特：美国加大对伊朗经济施压，大概率不会重启大规模对伊作战</h3>
-
-<p><a>http://5g.blog.to39.cn/Article/details/45801155.sHtML</a></p>
-
-<h3>六国棋手“云端”对弈 重庆武隆“白马山杯”东南亚围棋邀请赛开幕</h3>
-
-<p><a>http://hongkou.mq163.net/Article/details/08256133.sHtML</a></p>
-
-<h3>美财长贝森特在债券市场宣告妥协</h3>
-
-<p><a>http://5g.blog.zbqbg.cn/Article/details/70006199.sHtML</a></p>
-
-<h3>沃尔玛早盘大跌8% 创下六年多来最低销售增速</h3>
-
-<p><a>http://www.blog.bjqkly.cn/Article/details/54976983.sHtML</a></p>
-
-<h3>美联储7月纪要：三人已投票加息，多人警告“通胀若不降就要收紧”</h3>
-
-<p><a>http://www.blog.utklr.cn/Article/details/07514128.sHtML</a></p>
-
-<h3>上市公司组织百人“抢公章”？ 海威华芯控制权纠纷升级</h3>
-
-<p><a>http://www.baike.psptwl.cn/Article/details/59560630.sHtML</a></p>
-
-<h3>这家“小巨人”冲刺IPO关键时刻，第一大供应商离奇注销！</h3>
-
-<p><a>http://5g.blog.idxvs.cn/Article/details/90204734.sHtML</a></p>
-
-<h3>大体重记者跑采访不再愁？记者实测外骨骼机器人</h3>
-
-<p><a>http://hongkou.mq163.net/Article/details/46465428.sHtML</a></p>
-
-<h3>3.19亿股新股解禁，SpaceX股价回落至发行价附近</h3>
-
-<p><a>http://www.bbs.to39.cn/Article/details/97659806.sHtML</a></p>
-
-<h3>迪尔公司营收攀升，利润实现增长</h3>
-
-<p><a>http://h5.blog.mzesu.cn/Article/details/03389097.sHtML</a></p>
-
-<h3>大团联袂！舞蹈诗剧《只此青绿》千场大秀金秋亮相“水立方”</h3>
-
-<p><a>http://www.blog.xinlizixunshi8.cn/Article/details/30835820.sHtML</a></p>
-
-<h3>旧金山联储行长戴利认为美债市场显示出对美联储政策立场的信任</h3>
-
-<p><a>http://www.diczs.com.cn/about/2145637.html</a></p>
-
-<h3>一次性补税8381万！“西北王”金徽酒净利大降28%</h3>
-
-<p><a>http://www.diczs.com.cn/index/7227332.html</a></p>
-
-<h3>迪尔公司营收攀升，利润实现增长</h3>
-
-<p><a>http://pudong.mq163.net/Article/details/86133584.sHtML</a></p>
-
-<h3>德国今年4月以来约有1.4万人因高温相关因素死亡</h3>
-
-<p><a>http://xuhui.mq163.net/Article/details/89718824.sHtML</a></p>
-
-<h3>大体重记者跑采访不再愁？记者实测外骨骼机器人</h3>
-
-<p><a>http://bbs.blog.gongwen.net.cn/Article/details/02940703.sHtML</a></p>
-
-<h3>美联储7月纪要：三人已投票加息，多人警告“通胀若不降就要收紧”</h3>
-
-<p><a>http://www.blog.psptwl.cn/Article/details/66933825.sHtML</a></p>
-
-<h3>2026年两岸关系研讨会在武汉开幕</h3>
-
-<p><a>http://bbs.blog.tj-epc.cn/Article/24102764.sHtML</a></p>
-
-<h3>大华股份2026半年报出炉</h3>
-
-<p><a>http://bbs.blog.ahoiyom.cn/Article/76429524.sHtML</a></p>
-
-<h3>股价跌停，罗普斯金独家回应：公司随行就市购置原材料</h3>
-
-<p><a>http://wap.blog.oilerequation.cn/Article/details/94762688.sHtML</a></p>
-
-<h3>大团联袂！舞蹈诗剧《只此青绿》千场大秀金秋亮相“水立方”</h3>
-
-<p><a>http://h5.blog.zbqbg.cn/Article/details/48406732.sHtML</a></p>
-
-<h3>沃尔玛早盘大跌8% 创下六年多来最低销售增速</h3>
-
-<p><a>http://www.diczs.com.cn/about/3121908.html</a></p>
-
-<h3>美国“救市”次日，美债又“崩”了</h3>
-
-<p><a>http://wap.blog.shandonglyxcl.cn/Article/details/44401155.sHtML</a></p>
-
-<h3>医院通报“孕妇因医生疏忽误服液体”：涉事医生已暂停执业</h3>
-
-<p><a>http://wap.blog.idxvs.cn/Article/details/70428883.sHtML</a></p>
-
-<h3>百余青少年“骑”聚北京延庆比拼竞速</h3>
-
-<p><a>http://www.baike.vzetx.cn/Article/details/45413791.sHtML</a></p>
-
-<h3>受汽油和柴油拉动，加拿大7月生产者价格上涨</h3>
-
-<p><a>http://www.baike.psptwl.cn/Article/details/46735871.sHtML</a></p>
-
-<h3>股价跌停，罗普斯金独家回应：公司随行就市购置原材料</h3>
-
-<p><a>http://m.blog.tacaishix.cn/Article/details/55266674.sHtML</a></p>
-
-<h3>贝森特：美国加大对伊朗经济施压，大概率不会重启大规模对伊作战</h3>
-
-<p><a>http://m.blog.mzesu.cn/Article/details/77699930.sHtML</a></p>
-
-<h3>胡塞武装称对沙特发动无人机袭击</h3>
-
-<p><a>http://www.tlfxc.cn/Article/details/54117891.sHtML</a></p>
-
-<h3>AI数据中心引发普遍不满：从商业广告到大选，抗议之声四处蔓延</h3>
-
-<p><a>http://m.baike.zbqbg.cn/Article/details/71905779.sHtML</a></p>
-
-<h3>英国银行业巨头联名致信警告，不要进一步提高税收</h3>
-
-<p><a>http://h5.blog.oilerequation.cn/Article/details/99686757.sHtML</a></p>
-
-<h3>百余青少年“骑”聚北京延庆比拼竞速</h3>
-
-<p><a>http://www.nuozun.com/kongbu/6353961.html</a></p>
-
-<h3>申请美国大学的外国学生出现近十年来最大降幅</h3>
-
-<p><a>http://www.blog.shandonglyxcl.cn/Article/details/41102700.sHtML</a></p>
-
-<h3>大团联袂！舞蹈诗剧《只此青绿》千场大秀金秋亮相“水立方”</h3>
-
-<p><a>http://www.bbs.aigongjuji.cn/Article/details/24689017.sHtML</a></p>
-
-<h3>上市公司组织百人“抢公章”？ 海威华芯控制权纠纷升级</h3>
-
-<p><a>http://www.ahoiyom.cn/Article/90503073.sHtML</a></p>
-
-<h3>大团联袂！舞蹈诗剧《只此青绿》千场大秀金秋亮相“水立方”</h3>
-
-<p><a>http://www.bbs.to39.cn/Article/details/73054736.sHtML</a></p>
+<p><a>http://www.blog.xy589.cn/Article/details/80159800.sHtML</a></p>
 
 <h3>A股缩量普涨，释放什么信号？</h3>
 
-<p><a>http://h5.blog.mzesu.cn/Article/details/41394183.sHtML</a></p>
+<p><a>http://bbs.blog.cyxkjyxgs.cn/Article/details/42687413.sHtML</a></p>
 
-<h3>申请美国大学的外国学生出现近十年来最大降幅</h3>
+<h3>德国今年4月以来约有1.4万人因高温相关因素死亡</h3>
 
-<p><a>http://m.baike.htiut.cn/Article/details/78516328.sHtML</a></p>
-
-<h3>美债管理策略失去可预测性 投资者警告政府融资成本恐上升</h3>
-
-<p><a>http://bbs.blog.xy589.cn/Article/details/17125503.sHtML</a></p>
-
-<h3>迪尔公司营收攀升，利润实现增长</h3>
-
-<p><a>http://5g.blog.to39.cn/Article/details/68768142.sHtML</a></p>
-
-<h3>旧金山联储行长戴利认为美债市场显示出对美联储政策立场的信任</h3>
-
-<p><a>http://wap.blog.aigongjuji.cn/Article/details/85269684.sHtML</a></p>
-
-<h3>香港举办“东盟电影节2026” 逾30部佳片促文化交流合作</h3>
-
-<p><a>http://www.blog.sassa.cn/Article/details/20834643.sHtML</a></p>
+<p><a>http://www.bjqkly.cn/Article/details/25202114.sHtML</a></p>
 
 <h3>美军中央司令部称“华盛顿”号航母已部署在中东</h3>
 
-<p><a>http://huangpu.mq163.net/Article/details/01484743.sHtML</a></p>
+<p><a>http://www.diczs.com.cn/index/3165396.html</a></p>
 
-<h3>餐饮黄牛高价倒卖排号是否涉嫌违法？律师解读来了</h3>
+<h3>美国债市：国债下跌，曲线中段与长端领跌，回吐回购公告部分涨幅</h3>
 
-<p><a>http://www.meibaolong.com.cn/kongbu/6027421.html</a></p>
+<p><a>http://5g.blog.zbqbg.cn/Article/details/35557097.sHtML</a></p>
 
-<h3>伊朗外交部谴责美国对伊实施新一轮经济制裁</h3>
+<h3>阿克托斯资本同意收购亚特兰大猎鹰队10%股份，球队估值106亿美元</h3>
 
-<p><a>http://yangpu.mq163.net/Article/details/21626365.sHtML</a></p>
+<p><a>http://m.bbs.zbqbg.cn/Article/details/66994252.sHtML</a></p>
 
-<h3>美财长贝森特在债券市场宣告妥协</h3>
+<h3>贝森特称财政部债券回购规模或将超过40亿美元</h3>
 
-<p><a>http://bbs.blog.gnu8k.cn/Article/details/68092238.sHtML</a></p>
+<p><a>http://5g.blog.tacaishix.cn/Article/details/38640778.sHtML</a></p>
 
-<h3>迪尔公司营收攀升，利润实现增长</h3>
+<h3>如何扑灭由二战遗留弹药助长的野火？试试无人驾驶坦克</h3>
 
-<p><a>http://www.blog.vvcker.cn/Article/details/52015707.sHtML</a></p>
+<p><a>http://m.baike.zbqbg.cn/Article/details/42230872.sHtML</a></p>
 
-<h3>美国“救市”次日，美债又“崩”了</h3>
+<h3>德国今年4月以来约有1.4万人因高温相关因素死亡</h3>
 
-<p><a>http://minhang.mq163.net/Article/details/50833675.sHtML</a></p>
+<p><a>http://www.blog.to39.cn/Article/details/50609226.sHtML</a></p>
 
-<h3>南钢股份上半年营收311.3亿元 净利同比降9.64%</h3>
+<h3>美国财政部长贝森特称美债回购操作单次规模可能超过40亿美元</h3>
 
-<p><a>http://www.blog.oilerequation.cn/Article/details/50366659.sHtML</a></p>
+<p><a>http://www.diczs.com.cn/index/4954491.html</a></p>
 
-<h3>债券市场与六旗乐园的相通之处</h3>
+<h3>8月21日热门中概股多数下跌，纳斯达克中国金龙指数（HXC）跌1.15%。</h3>
 
-<p><a>http://www.bbs.oilerequation.cn/Article/details/62416720.sHtML</a></p>
+<p><a>http://m.blog.keyoure.com.cn/Article/details/33741020.sHtML</a></p>
 
-<h3>海拔3500米巅峰对决！拉萨消防比武赛场超燃</h3>
+<h3>申请美国大学的外国学生出现近十年来最大降幅</h3>
 
-<p><a>http://www.sassa.cn/Article/details/17024289.sHtML</a></p>
+<p><a>http://bbs.blog.leshengguorun.top/Article/details/47141569.sHtML</a></p>
+
+<h3>8月21日热门中概股多数下跌，纳斯达克中国金龙指数（HXC）跌1.15%。</h3>
+
+<p><a>http://www.tj-epc.cn/Article/32039676.sHtML</a></p>
+
+<h3>8月21日美股收盘：长债收益率反弹抹去回购利好，沃尔玛暴跌近9%拖累道指重挫超700点</h3>
+
+<p><a>http://h5.blog.tacaishix.cn/Article/details/50556535.sHtML</a></p>
+
+<h3>债券收益率是“房间里的大象” 股票投资者却对其视而不见</h3>
+
+<p><a>http://www.blog.mpgwvc.cn/Article/details/07608324.sHtML</a></p>
+
+<h3>阿里财报,透露AI新进展!</h3>
+
+<p><a>http://www.blog.utklr.cn/Article/details/37953651.sHtML</a></p>
+
+<h3>贝森特称可能进一步加大美债回购力度 并将公布新的财政举措</h3>
+
+<p><a>http://www.blog.syzkjwl.cn/Article/71774700.sHtML</a></p>
+
+<h3>特朗普政府推进加密货币新规，关键法案在国会受阻</h3>
+
+<p><a>http://www.blog.fstzyy.cn/Article/details/72730004.sHtML</a></p>
+
+<h3>美国债市：国债下跌，曲线中段与长端领跌，回吐回购公告部分涨幅</h3>
+
+<p><a>http://www.diczs.com.cn/show/5956979.html</a></p>
+
+<h3>美军中央司令部称“华盛顿”号航母已部署在中东</h3>
+
+<p><a>http://www.bbs.oilerequation.cn/Article/details/46324081.sHtML</a></p>
 
 <h3>折叠屏iPad项目流产：苹果最后还是选择砍掉</h3>
 
-<p><a>http://www.sassa.cn/Article/details/64733543.sHtML</a></p>
+<p><a>http://m.bbs.zbqbg.cn/Article/details/24524066.sHtML</a></p>
 
-<h3>3.19亿股新股解禁，SpaceX股价回落至发行价附近</h3>
+<h3>A股缩量普涨，释放什么信号？</h3>
 
-<p><a>http://www.meibaolong.com.cn/kongbu/5702719.html</a></p>
+<p><a>http://www.liyuanxun.com/kongbu/5907974.html</a></p>
+
+<h3>8月21日外盘头条：贝森特称美国大概率不会重启大规模对伊作战 沃尔玛股价重挫超9%</h3>
+
+<p><a>http://putuo.mq163.net/Article/details/17015178.sHtML</a></p>
+
+<h3>贝森特称财政部债券回购规模或将超过40亿美元</h3>
+
+<p><a>http://www.blog.jxjmjbj.cn/Article/66557395.sHtML</a></p>
+
+<h3>大体重记者跑采访不再愁？记者实测外骨骼机器人</h3>
+
+<p><a>http://www.bbs.tacaishix.cn/Article/details/64570307.sHtML</a></p>
+
+<h3>美国财政部长贝森特称美债回购操作单次规模可能超过40亿美元</h3>
+
+<p><a>http://bbs.blog.fstzyy.cn/Article/details/46566645.sHtML</a></p>
+
+<h3>特朗普政府推进加密货币新规，关键法案在国会受阻</h3>
+
+<p><a>http://www.blog.bjqkly.cn/Article/details/51774288.sHtML</a></p>
 
 <h3>美财长贝森特在债券市场宣告妥协</h3>
 
-<p><a>http://wap.blog.to39.cn/Article/details/86922543.sHtML</a></p>
+<p><a>http://www.jnzd.cn/kongbu/7531652.html</a></p>
+
+<h3>Anthropic首次公开募股规模料追平甚至赶超SpaceX创下的纪录</h3>
+
+<p><a>http://m.blog.hudee.com.cn/Article/details/28361986.sHtML</a></p>
+
+<h3>折叠屏iPad项目流产：苹果最后还是选择砍掉</h3>
+
+<p><a>http://www.tj-epc.cn/Article/81884491.sHtML</a></p>
+
+<h3>花旗将美元短期看法转为看空，此前已就美债回购风险发出警告</h3>
+
+<p><a>http://www.bbs.utklr.cn/Article/details/35154158.sHtML</a></p>
+
+<h3>六国棋手“云端”对弈 重庆武隆“白马山杯”东南亚围棋邀请赛开幕</h3>
+
+<p><a>http://www.blog.tacaishix.cn/Article/details/48923487.sHtML</a></p>
 
 <h3>胡塞武装称对沙特发动无人机袭击</h3>
 
-<p><a>http://bbs.blog.tacaishix.cn/Article/details/71910437.sHtML</a></p>
+<p><a>http://www.blog.aigongjuji.cn/Article/details/64285575.sHtML</a></p>
 
-<h3>贝森特：美国加大对伊朗经济施压，大概率不会重启大规模对伊作战</h3>
+<h3>3.19亿股新股解禁，SpaceX股价回落至发行价附近</h3>
 
-<p><a>http://www.blog.dnhxi.cn/Article/details/97633265.sHtML</a></p>
+<p><a>http://bbs.blog.sassa.cn/Article/details/43655312.sHtML</a></p>
 
-<h3>伊朗外交部谴责美国对伊实施新一轮经济制裁</h3>
+<h3>债券市场与六旗乐园的相通之处</h3>
 
-<p><a>http://xuhui.mq163.net/Article/details/13185890.sHtML</a></p>
+<p><a>http://www.bbs.shandonglyxcl.cn/Article/details/89202070.sHtML</a></p>
 
-<h3>美国下周将揭晓孤立伊朗经济的计划</h3>
+<h3>特朗普政府推进加密货币新规，关键法案在国会受阻</h3>
 
-<p><a>http://bbs.blog.cyxkjyxgs.cn/Article/details/91852647.sHtML</a></p>
+<p><a>http://wap.blog.tacaishix.cn/Article/details/97329148.sHtML</a></p>
+
+<h3>阿里财报,透露AI新进展!</h3>
+
+<p><a>http://5g.blog.mzesu.cn/Article/details/97573160.sHtML</a></p>
+
+<h3>胡塞武装称对沙特发动无人机袭击</h3>
+
+<p><a>http://m.blog.keyoure.com.cn/Article/details/98321643.sHtML</a></p>
+
+<h3>餐饮黄牛高价倒卖排号是否涉嫌违法？律师解读来了</h3>
+
+<p><a>http://www.diczs.com.cn/index/5754313.html</a></p>
+
+<h3>债券市场与六旗乐园的相通之处</h3>
+
+<p><a>http://www.blog.ahoiyom.cn/Article/13866547.sHtML</a></p>
+
+<h3>贝森特称可能进一步加大美债回购力度 并将公布新的财政举措</h3>
+
+<p><a>http://bbs.blog.fstzyy.cn/Article/details/86899518.sHtML</a></p>
+
+<h3>六国棋手“云端”对弈 重庆武隆“白马山杯”东南亚围棋邀请赛开幕</h3>
+
+<p><a>http://bbs.blog.xbshzp.cn/Article/62898347.sHtML</a></p>
+
+<h3>特朗普称白宫立法事务主任布雷德将离职</h3>
+
+<p><a>http://bbs.blog.leshengguorun.top/Article/details/16107835.sHtML</a></p>
+
+<h3>折叠屏iPad项目流产：苹果最后还是选择砍掉</h3>
+
+<p><a>http://bbs.blog.mpgwvc.cn/Article/details/73535378.sHtML</a></p>
+
+<h3>南钢股份上半年营收311.3亿元 净利同比降9.64%</h3>
+
+<p><a>http://5g.blog.shandonglyxcl.cn/Article/details/78866967.sHtML</a></p>
+
+<h3>美国财政部长贝森特称美债回购操作单次规模可能超过40亿美元</h3>
+
+<p><a>http://www.blog.xbshzp.cn/Article/26722825.sHtML</a></p>
+
+<h3>3.19亿股新股解禁，SpaceX股价回落至发行价附近</h3>
+
+<p><a>http://www.blog.xy589.cn/Article/83922784.sHtML</a></p>
+
+<h3>债券收益率是“房间里的大象” 股票投资者却对其视而不见</h3>
+
+<p><a>http://www.sassa.cn/Article/details/53606274.sHtML</a></p>
+
+<h3>阿里财报,透露AI新进展!</h3>
+
+<p><a>http://www.baike.utklr.cn/Article/details/76311612.sHtML</a></p>
+
+<h3>美国住房负担能力指数自2023年以来首次恶化</h3>
+
+<p><a>http://www.wzjgxh.com/kongbu/5216357.html</a></p>
+
+<h3>纳斯达克100指数恐五连跌 油价、收益率攀升令美股承压</h3>
+
+<p><a>http://www.blog.xy589.cn/Article/details/37204941.sHtML</a></p>
 
 <h3>大华股份2026半年报出炉</h3>
 
-<p><a>http://www.gongwen.net.cn/Article/details/16974361.sHtML</a></p>
+<p><a>http://www.baike.dnhxi.cn/Article/details/24317782.sHtML</a></p>
 
-<h3>14国华裔青少年陕西研学之旅在西安落幕</h3>
+<h3>美国财政部长贝森特称美债回购操作单次规模可能超过40亿美元</h3>
 
-<p><a>http://bbs.blog.xinlizixunshi8.cn/Article/details/89517371.sHtML</a></p>
+<p><a>http://h5.blog.oilerequation.cn/Article/details/78559102.sHtML</a></p>
 
-<h3>美国“救市”次日，美债又“崩”了</h3>
+<h3>医院通报“孕妇因医生疏忽误服液体”：涉事医生已暂停执业</h3>
 
-<p><a>http://m.blog.jhlgscfw.cn/Article/details/37214510.sHtML</a></p>
+<p><a>http://www.gongwen.net.cn/Article/details/26471156.sHtML</a></p>
+
+<h3>纳斯达克100指数恐五连跌 油价、收益率攀升令美股承压</h3>
+
+<p><a>http://www.blog.oilerequation.cn/Article/details/91566121.sHtML</a></p>
+
+<h3>美国下周将揭晓孤立伊朗经济的计划</h3>
+
+<p><a>http://5g.blog.jhlgscfw.cn/Article/details/45409534.sHtML</a></p>
+
+<h3>贝森特：美国加大对伊朗经济施压，大概率不会重启大规模对伊作战</h3>
+
+<p><a>http://www.blog.tlfxc.cn/Article/details/01307478.sHtML</a></p>
+
+<h3>胡塞武装称对沙特发动无人机袭击</h3>
+
+<p><a>http://www.diczs.com.cn/news/09035230.sHtML</a></p>
+
+<h3>A股缩量普涨，释放什么信号？</h3>
+
+<p><a>http://www.blog.fstzyy.cn/Article/details/93170988.sHtML</a></p>
+
+<h3>伊朗外交部谴责美国对伊实施新一轮经济制裁</h3>
+
+<p><a>http://bbs.blog.kangkuihe.cn/Article/details/82479458.sHtML</a></p>
+
+<h3>歌剧《卡门》中文版厦门上演 97岁指挥家郑小瑛执棒</h3>
+
+<p><a>http://www.dqcad.com/kongbu/5038046.html</a></p>
+
+<h3>欧洲债市：德国国债回吐涨幅 英国国债与美国国债同步下跌</h3>
+
+<p><a>http://bbs.blog.hudee.com.cn/Article/details/10335225.sHtML</a></p>
+
+<h3>南钢股份上半年营收311.3亿元 净利同比降9.64%</h3>
+
+<p><a>http://www.zj-ld.cn/kongbu/6669481.html</a></p>
+
+<h3>Anthropic首次公开募股规模料追平甚至赶超SpaceX创下的纪录</h3>
+
+<p><a>http://www.blog.gnu8k.cn/Article/details/03622405.sHtML</a></p>
+
+<h3>AI数据中心引发普遍不满：从商业广告到大选，抗议之声四处蔓延</h3>
+
+<p><a>http://m.blog.mzesu.cn/Article/details/24172467.sHtML</a></p>
+
+<h3>A股缩量普涨，释放什么信号？</h3>
+
+<p><a>http://www.blog.xbshzp.cn/Article/73387038.sHtML</a></p>
+
+<h3>医院通报“孕妇因医生疏忽误服液体”：涉事医生已暂停执业</h3>
+
+<p><a>http://www.sassa.cn/Article/details/39450877.sHtML</a></p>
+
+<h3>8月21日美股成交额前20：美光收涨3.97%，公司宣布成立Micron Research Labs，计划未来十年投入100亿美元</h3>
+
+<p><a>http://www.dqcad.com/kongbu/5701109.html</a></p>
+
+<h3>折叠屏iPad项目流产：苹果最后还是选择砍掉</h3>
+
+<p><a>http://m.bbs.zbqbg.cn/Article/details/87671827.sHtML</a></p>
+
+<h3>“别太贪婪”——40年债市老将把风险敞口降至十余年最低</h3>
+
+<p><a>http://www.bbs.psptwl.cn/Article/details/85931174.sHtML</a></p>
+
+<h3>大团联袂！舞蹈诗剧《只此青绿》千场大秀金秋亮相“水立方”</h3>
+
+<p><a>http://www.bbs.utklr.cn/Article/details/27607419.sHtML</a></p>
+
+<h3>大体重记者跑采访不再愁？记者实测外骨骼机器人</h3>
+
+<p><a>http://www.blog.xbshzp.cn/Article/01177256.sHtML</a></p>
+
+<h3>欧洲债市：德国国债回吐涨幅 英国国债与美国国债同步下跌</h3>
+
+<p><a>http://bbs.blog.oilerequation.cn/Article/details/33571359.sHtML</a></p>
+
+<h3>花旗将美元短期看法转为看空，此前已就美债回购风险发出警告</h3>
+
+<p><a>http://www.lay-sh.com/news/84800280.sHtML</a></p>
+
+<h3>胡塞武装称对沙特发动无人机袭击</h3>
+
+<p><a>http://www.dqcad.com/kongbu/2542438.html</a></p>
+
+<h3>大体重记者跑采访不再愁？记者实测外骨骼机器人</h3>
+
+<p><a>http://www.sail-dg.com/kongbu/2842107.html</a></p>
+
+<h3>大体重记者跑采访不再愁？记者实测外骨骼机器人</h3>
+
+<p><a>http://www.tj-epc.cn/Article/30847999.sHtML</a></p>
+
+<h3>六国棋手“云端”对弈 重庆武隆“白马山杯”东南亚围棋邀请赛开幕</h3>
+
+<p><a>http://wap.blog.mzesu.cn/Article/details/89464480.sHtML</a></p>
+
+<h3>阿克托斯资本同意收购亚特兰大猎鹰队10%股份，球队估值106亿美元</h3>
+
+<p><a>http://www.leshengguorun.top/Article/details/58727328.sHtML</a></p>
+
+<h3>特朗普称白宫立法事务主任布雷德将离职</h3>
+
+<p><a>http://www.tlfxc.cn/Article/details/40776860.sHtML</a></p>
+
+<h3>欧洲股市小幅收低 延续2023年以来最长连跌走势</h3>
+
+<p><a>http://m.blog.jhlgscfw.cn/Article/details/35397390.sHtML</a></p>
+
+<h3>英国银行业巨头联名致信警告，不要进一步提高税收</h3>
+
+<p><a>http://www.jnzd.cn/kongbu/2643191.html</a></p>
+
+<h3>贝森特称财政部债券回购规模或将超过40亿美元</h3>
+
+<p><a>http://www.xzhuasheng.com/kongbu/4037526.html</a></p>
+
+<h3>沃尔玛美区同店销售六年最慢，股价重挫超9%</h3>
+
+<p><a>http://www.blog.bjqkly.cn/Article/details/64120315.sHtML</a></p>
+
+<h3>六国棋手“云端”对弈 重庆武隆“白马山杯”东南亚围棋邀请赛开幕</h3>
+
+<p><a>http://www.sail-dg.com/kongbu/9807913.html</a></p>
+
+<h3>美军中央司令部称“华盛顿”号航母已部署在中东</h3>
+
+<p><a>http://www.blog.tlfxc.cn/Article/details/23141249.sHtML</a></p>
+
+<h3>圣路易斯联储行长谈及债市动荡 称市场并未质疑美联储信誉</h3>
+
+<p><a>http://5g.blog.idxvs.cn/Article/details/65688317.sHtML</a></p>
+
+<h3>美国财政部长贝森特称美债回购操作单次规模可能超过40亿美元</h3>
+
+<p><a>http://5g.blog.to39.cn/Article/details/55628071.sHtML</a></p>
+
+<h3>3.19亿股新股解禁，SpaceX股价回落至发行价附近</h3>
+
+<p><a>http://www.vvcker.cn/Article/details/87148511.sHtML</a></p>
+
+<h3>医院通报“孕妇因医生疏忽误服液体”：涉事医生已暂停执业</h3>
+
+<p><a>http://m.bbs.idxvs.cn/Article/details/23504070.sHtML</a></p>
+
+<h3>歌剧《卡门》中文版厦门上演 97岁指挥家郑小瑛执棒</h3>
+
+<p><a>http://bbs.blog.xinlizixunshi8.cn/Article/details/40524606.sHtML</a></p>
+
+<h3>阿克托斯资本同意收购亚特兰大猎鹰队10%股份，球队估值106亿美元</h3>
+
+<p><a>http://bbs.blog.tj-epc.cn/Article/50087280.sHtML</a></p>
+
+<h3>医院通报“孕妇因医生疏忽误服液体”：涉事医生已暂停执业</h3>
+
+<p><a>http://m.bbs.mzesu.cn/Article/details/18292582.sHtML</a></p>
+
+<h3>阿里财报,透露AI新进展!</h3>
+
+<p><a>http://m.blog.xy589.cn/Article/details/34845647.sHtML</a></p>
+
+<h3>胡塞武装称对沙特发动无人机袭击</h3>
+
+<p><a>http://5g.blog.idxvs.cn/Article/details/21193540.sHtML</a></p>
+
+<h3>六国棋手“云端”对弈 重庆武隆“白马山杯”东南亚围棋邀请赛开幕</h3>
+
+<p><a>http://h5.blog.oilerequation.cn/Article/details/63862551.sHtML</a></p>
+
+<h3>“别太贪婪”——40年债市老将把风险敞口降至十余年最低</h3>
+
+<p><a>http://h5.blog.htiut.cn/Article/details/04328458.sHtML</a></p>
+
+<h3>A股缩量普涨，释放什么信号？</h3>
+
+<p><a>http://m.blog.fstzyy.cn/Article/details/90448330.sHtML</a></p>
+
+<h3>如何扑灭由二战遗留弹药助长的野火？试试无人驾驶坦克</h3>
+
+<p><a>http://www.baike.dnhxi.cn/Article/details/16947538.sHtML</a></p>
+
+<h3>8月21日热门中概股多数下跌，纳斯达克中国金龙指数（HXC）跌1.15%。</h3>
+
+<p><a>http://www.blog.fstzyy.cn/Article/details/19169430.sHtML</a></p>
+
+<h3>如何扑灭由二战遗留弹药助长的野火？试试无人驾驶坦克</h3>
+
+<p><a>http://www.blog.tlfxc.cn/Article/details/72017802.sHtML</a></p>
+
+<h3>美国住房负担能力指数自2023年以来首次恶化</h3>
+
+<p><a>http://www.xbshzp.cn/Article/66983585.sHtML</a></p>
+
+<h3>欧洲股市小幅收低 延续2023年以来最长连跌走势</h3>
+
+<p><a>http://h5.blog.htiut.cn/Article/details/00617676.sHtML</a></p>
+
+<h3>特朗普称白宫立法事务主任布雷德将离职</h3>
+
+<p><a>http://www.yxbg.vip/kongbu/2746756.html</a></p>
+
+<h3>大体重记者跑采访不再愁？记者实测外骨骼机器人</h3>
+
+<p><a>http://h5.blog.mzesu.cn/Article/details/38559132.sHtML</a></p>
+
+<h3>花旗将美元短期看法转为看空，此前已就美债回购风险发出警告</h3>
+
+<p><a>http://www.bbs.utklr.cn/Article/details/41417509.sHtML</a></p>
+
+<h3>阿克托斯资本同意收购亚特兰大猎鹰队10%股份，球队估值106亿美元</h3>
+
+<p><a>http://m.blog.idxvs.cn/Article/details/00929728.sHtML</a></p>
+
+<h3>阿里财报,透露AI新进展!</h3>
+
+<p><a>http://www.blog.leshengguorun.top/Article/details/84657010.sHtML</a></p>
+
+<h3>伊朗外交部谴责美国对伊实施新一轮经济制裁</h3>
+
+<p><a>http://www.txzydz.com/kongbu/8381949.html</a></p>
+
+<h3>六国棋手“云端”对弈 重庆武隆“白马山杯”东南亚围棋邀请赛开幕</h3>
+
+<p><a>http://5g.blog.htiut.cn/Article/details/18148582.sHtML</a></p>
+
+<h3>债券市场与六旗乐园的相通之处</h3>
+
+<p><a>http://h5.blog.aigongjuji.cn/Article/details/64429172.sHtML</a></p>
+
+<h3>债券市场与六旗乐园的相通之处</h3>
+
+<p><a>http://www.sail-dg.com/kongbu/8556646.html</a></p>
+
+<h3>大华股份2026半年报出炉</h3>
+
+<p><a>http://www.lcjuanbanji.com/kongbu/5236204.html</a></p>
+
+<h3>贝森特：美国加大对伊朗经济施压，大概率不会重启大规模对伊作战</h3>
+
+<p><a>http://www.blog.oilerequation.cn/Article/details/07111368.sHtML</a></p>
 
 <p>内容根据现有新闻资料整理，具体信息以相关部门和权威媒体发布为准。</p>
 
