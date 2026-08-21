@@ -28,607 +28,607 @@
 
 <h2>相关阅读</h2>
 
-<h3>城堡投资：7月买入Situational Awareness部分头寸，多策略基金月涨5.94%</h3>
+<h3>高盛：黄金看涨期权需求激增，或放大金价双向波动</h3>
 
-<p><a href='https://github.com/ero9esx-creator/jiaoyu202608/blob/main/20260822-09ut0qd6.md'>城堡投资：7月买入Situational Awareness部分头寸，多策略基金月涨5.94%</a></p>
+<p><a href='https://github.com/ramonaviviansbkhfb9905-create/shenghuo202608/blob/main/20260822-08jldgf3.md'>高盛：黄金看涨期权需求激增，或放大金价双向波动</a></p>
 
-<h3>资金“抄底”，加仓这些方向</h3>
+<h3>英国7月公共部门借款18亿英镑，高于预算责任办公室预期</h3>
 
-<p><a href='https://github.com/mikaylaryleeeschkq9257-dot/keji202608/blob/main/20260822-dbcbgljn.md'>资金“抄底”，加仓这些方向</a></p>
-
-<h3>资金“抄底”，加仓这些方向</h3>
-
-<p><a href='https://github.com/asadw0454/2026mingyue/blob/main/20260822-ul8fxl27.md'>资金“抄底”，加仓这些方向</a></p>
-
-<h3>美军称5月以来已协助6.6亿桶石油通过霍尔木兹海峡</h3>
-
-<p><a href='https://github.com/kendalljuliettedvcyso3265-web/caodi202608/blob/main/20260822-4yze0xae.md'>美军称5月以来已协助6.6亿桶石油通过霍尔木兹海峡</a></p>
-
-<h3>特朗普政府聘任摩根大通前高管马特・扎姆斯为社会保障局顾问</h3>
-
-<p><a href='https://github.com/dmwke4-ops/shenghuo202608/blob/main/20260822-ww8falf8.md'>特朗普政府聘任摩根大通前高管马特・扎姆斯为社会保障局顾问</a></p>
-
-<h3>黄金升至三个月高位，去年令金价飙升的“贬值交易”全面回潮</h3>
-
-<p><a href='https://github.com/mejiastanle/20260718_09/blob/main/20260822-c5nf27y5.md'>黄金升至三个月高位，去年令金价飙升的“贬值交易”全面回潮</a></p>
-
-<h3>这些“美女帅哥”竟然是机器人</h3>
-
-<p><a href='https://github.com/asadw0454/20260718_06/blob/main/20260822-kv453a9a.md'>这些“美女帅哥”竟然是机器人</a></p>
-
-<h3>旅德大熊猫双胞胎两岁生日记</h3>
-
-<p><a href='https://github.com/johannaamandagxsalk7151-pixel/keji202608/blob/main/20260822-282wxmg8.md'>旅德大熊猫双胞胎两岁生日记</a></p>
-
-<h3>WPS Comate百城AI智能体赋能计划启动</h3>
-
-<p><a href='https://github.com/theahayleendnoqd6760-ux/caodi202608/blob/main/20260822-dvxj9rs3.md'>WPS Comate百城AI智能体赋能计划启动</a></p>
-
-<h3>山东临沂一处独立平房院落发生爆炸 致1人死亡2人失联</h3>
-
-<p><a href='https://github.com/bernettcoia/20260718_18/blob/main/20260822-uere1u66.md'>山东临沂一处独立平房院落发生爆炸 致1人死亡2人失联</a></p>
-
-<h3>成都车展观察：新能源“西进” 车企从堆参数到磕场景</h3>
-
-<p><a href='https://github.com/bernettcoia/20260718_15/blob/main/20260731_9ybu8.md'>成都车展观察：新能源“西进” 车企从堆参数到磕场景</a></p>
-
-<h3>资金“抄底”，加仓这些方向</h3>
-
-<p><a href='https://github.com/bernettcoia/20260718_17/blob/main/20260801_qosfl.md'>资金“抄底”，加仓这些方向</a></p>
-
-<h3>中天期货:商品指数商品继续上行 白银再度上行</h3>
-
-<p><a href='https://github.com/bernettcoia/20260718_19/blob/main/20260803_89wap.md'>中天期货:商品指数商品继续上行 白银再度上行</a></p>
-
-<h3>WPS Comate百城AI智能体赋能计划启动</h3>
-
-<p><a href='https://github.com/dmwke4-ops/caijing202608/blob/main/20260814-d8nvrdhn.md'>WPS Comate百城AI智能体赋能计划启动</a></p>
-
-<h3>GO Markets:实际利率趋稳改善金市</h3>
-
-<p><a href='https://github.com/dmwke4-ops/fangchan202608/blob/main/20260808-yckmjq18.md'>GO Markets:实际利率趋稳改善金市</a></p>
-
-<h3>CBCX:金银分化观察资金轮动</h3>
-
-<p><a href='https://github.com/dmwke4-ops/jiankang202608/blob/main/20260821-o986t2wp.md'>CBCX:金银分化观察资金轮动</a></p>
-
-<h3>GO Markets:实际利率趋稳改善金市</h3>
-
-<p><a href='https://github.com/dmwke4-ops/lvyou202608/blob/main/20260815-g6fo4zkq.md'>GO Markets:实际利率趋稳改善金市</a></p>
-
-<h3>广西军区举办抢险救灾先进典型事迹报告会</h3>
-
-<p><a href='https://github.com/dmwke4-ops/shenghuo202608/blob/main/20260811-5ayqh67r.md'>广西军区举办抢险救灾先进典型事迹报告会</a></p>
-
-<h3>纳指有望结束五连跌 比特币大涨之际Strategy股价上扬</h3>
-
-<p><a href='https://github.com/dmwke4-ops/wenhua202608/blob/main/20260802_ozr38.md'>纳指有望结束五连跌 比特币大涨之际Strategy股价上扬</a></p>
-
-<h3>GO Markets:实际利率趋稳改善金市</h3>
-
-<p><a href='https://github.com/dmwke4-ops/yinyue202608/blob/main/20260816-yz60t5a3.md'>GO Markets:实际利率趋稳改善金市</a></p>
-
-<h3>这些“美女帅哥”竟然是机器人</h3>
-
-<p><a href='https://github.com/dmwke4-ops/ziran202608/blob/main/20260813-8yvgycg9.md'>这些“美女帅哥”竟然是机器人</a></p>
-
-<h3>重要指数调整！华虹宏力、潍柴动力被纳入</h3>
-
-<p><a href='https://github.com/ero9esx-creator/dianying202608/blob/main/20260807-h6a598r2.md'>重要指数调整！华虹宏力、潍柴动力被纳入</a></p>
-
-<h3>特朗普政府聘任摩根大通前高管马特・扎姆斯为社会保障局顾问</h3>
-
-<p><a href='https://github.com/ero9esx-creator/guangming202608/blob/main/20260819-s52kui4s.md'>特朗普政府聘任摩根大通前高管马特・扎姆斯为社会保障局顾问</a></p>
-
-<h3>广西军区举办抢险救灾先进典型事迹报告会</h3>
-
-<p><a href='https://github.com/ero9esx-creator/keji202608/blob/main/20260814-n1kavhix.md'>广西军区举办抢险救灾先进典型事迹报告会</a></p>
-
-<h3>硅谷企业如何抓住英超博彩广告管控带来的机遇</h3>
-
-<p><a href='https://github.com/ero9esx-creator/qiche202608/blob/main/20260809-e3oplgtb.md'>硅谷企业如何抓住英超博彩广告管控带来的机遇</a></p>
-
-<h3>机器人保安会伤人吗？研究人员：身体接触需要人的授权</h3>
-
-<p><a href='https://github.com/ero9esx-creator/shishang202608/blob/main/20260821-ztm7olkj.md'>机器人保安会伤人吗？研究人员：身体接触需要人的授权</a></p>
-
-<h3>RadexMarkets瑞德克斯:杠杆泡沫出清改善结构</h3>
-
-<p><a href='https://github.com/ero9esx-creator/xinwen202608/blob/main/20260815-ls2lucp3.md'>RadexMarkets瑞德克斯:杠杆泡沫出清改善结构</a></p>
-
-<h3>CPT Markets:链上经济区聚合流动性</h3>
-
-<p><a href='https://github.com/ero9esx-creator/yule202608/blob/main/20260811-ka5l50uh.md'>CPT Markets:链上经济区聚合流动性</a></p>
-
-<h3>美军称5月以来已协助6.6亿桶石油通过霍尔木兹海峡</h3>
-
-<p><a href='https://github.com/fatimarubytiphxr0019-glitch/guangming202608/blob/main/20260809-dw6xj87c.md'>美军称5月以来已协助6.6亿桶石油通过霍尔木兹海峡</a></p>
-
-<h3>NCE平台:现货牌照完善服务边界</h3>
-
-<p><a href='https://github.com/fatimarubytiphxr0019-glitch/wenhua202608/blob/main/20260815-fib0djcq.md'>NCE平台:现货牌照完善服务边界</a></p>
-
-<h2>外部参考</h2>
-
-<h3>Mega安汇:生态基金调整代币用途</h3>
-
-<p><a>http://yangpu.mq163.net/Article/details/84422666.sHtML</a></p>
-
-<h3>EasyMarkets易信:金价回踩检验突破质量</h3>
-
-<p><a>http://www.baike.psptwl.cn/Article/details/29575659.sHtML</a></p>
-
-<h3>RadexMarkets瑞德克斯:杠杆泡沫出清改善结构</h3>
-
-<p><a>http://bbs.blog.kangkuihe.cn/Article/details/21742660.sHtML</a></p>
-
-<h3>美国政府紧急下场救市难解美债危局</h3>
-
-<p><a>http://wap.blog.idxvs.cn/Article/details/83734553.sHtML</a></p>
-
-<h3>特斯拉、优步、Waymo获准在拉斯维加斯最多投放8000台无人出租车</h3>
-
-<p><a>http://www.bbs.to39.cn/Article/details/71160135.sHtML</a></p>
-
-<h3>海南洋浦港审批便利化新举措提升国际船舶进口岸效率</h3>
-
-<p><a>http://m.blog.tacaishix.cn/Article/details/54101657.sHtML</a></p>
-
-<h3>旅德大熊猫双胞胎两岁生日记</h3>
-
-<p><a>http://m.blog.htiut.cn/Article/details/91983577.sHtML</a></p>
-
-<h3>巴拿马运河因厄尔尼诺干旱下调通航配额，9月起日均由约36艘降至34艘再至32艘</h3>
-
-<p><a>http://www.nuozun.com/kongbu/7454616.html</a></p>
-
-<h3>科普:长周期的底部和短周期的底部 有什么不同</h3>
-
-<p><a>http://bbs.blog.tj-epc.cn/Article/55247550.sHtML</a></p>
-
-<h3>EasyMarkets易信:金价回踩检验突破质量</h3>
-
-<p><a>http://jiading.mq163.net/Article/details/69562394.sHtML</a></p>
-
-<h3>CBCX:金银分化观察资金轮动</h3>
-
-<p><a>http://www.blog.kangkuihe.cn/Article/details/51634250.sHtML</a></p>
-
-<h3>机器人保安会伤人吗？研究人员：身体接触需要人的授权</h3>
-
-<p><a>http://bbs.blog.oilerequation.cn/Article/details/00815271.sHtML</a></p>
-
-<h3>多赛道科技企业集中发力 科创板提质增效2.0行动迈入实质阶段</h3>
-
-<p><a>http://www.bbs.tacaishix.cn/Article/details/31395855.sHtML</a></p>
-
-<h3>黄金升至三个月高位，去年令金价飙升的“贬值交易”全面回潮</h3>
-
-<p><a>http://www.blog.shandonglyxcl.cn/Article/details/04574794.sHtML</a></p>
-
-<h3>美国企业活动扩张步伐创2022年以来最快</h3>
-
-<p><a>http://m.blog.xy589.cn/Article/details/41859015.sHtML</a></p>
-
-<h3>特斯拉、优步、Waymo获准在拉斯维加斯最多投放8000台无人出租车</h3>
-
-<p><a>http://www.leshengguorun.top/Article/details/43305537.sHtML</a></p>
-
-<h3>海南洋浦港审批便利化新举措提升国际船舶进口岸效率</h3>
-
-<p><a>http://www.blog.vzetx.cn/Article/details/30555233.sHtML</a></p>
-
-<h3>超100家创科企业已签约河套香港园区</h3>
-
-<p><a>http://bbs.blog.tacaishix.cn/Article/details/59824737.sHtML</a></p>
+<p><a href='https://github.com/bernettcoia/20260718_05/blob/main/20260822-fo8kr45h.md'>英国7月公共部门借款18亿英镑，高于预算责任办公室预期</a></p>
 
 <h3>英伟达与华尔街六家机构筹建超5000亿美元AI算力融资平台，8月26日财报将成检验节点</h3>
 
-<p><a>http://www.bbs.jhlgscfw.cn/Article/details/80720871.sHtML</a></p>
-
-<h3>超100家创科企业已签约河套香港园区</h3>
-
-<p><a>http://www.mpgwvc.cn/Article/details/22310649.sHtML</a></p>
-
-<h3>CBCX:金银分化观察资金轮动</h3>
-
-<p><a>http://www.blog.gongwen.net.cn/Article/details/14490842.sHtML</a></p>
-
-<h3>M4Markets:流动宽松重塑黄金角色</h3>
-
-<p><a>http://m.blog.to39.cn/Article/details/00410167.sHtML</a></p>
-
-<h3>机器人行业新一轮“军备竞赛”：谁能拍出最吸睛的造势宣传片？</h3>
-
-<p><a>http://h5.blog.htiut.cn/Article/details/45588036.sHtML</a></p>
-
-<h3>成都车展观察：新能源“西进” 车企从堆参数到磕场景</h3>
-
-<p><a>http://www.blog.oilerequation.cn/Article/details/86765503.sHtML</a></p>
+<p><a href='https://github.com/linhh234/20260718_09/blob/main/20260822-sw4e0z5a.md'>英伟达与华尔街六家机构筹建超5000亿美元AI算力融资平台，8月26日财报将成检验节点</a></p>
 
 <h3>城堡投资：7月买入Situational Awareness部分头寸，多策略基金月涨5.94%</h3>
 
-<p><a>http://www.blog.aigongjuji.cn/Article/details/03741852.sHtML</a></p>
+<p><a href='https://github.com/adleycatalinawxxnqj0188-byte/keji202608/blob/main/20260822-4bpfggxk.md'>城堡投资：7月买入Situational Awareness部分头寸，多策略基金月涨5.94%</a></p>
 
-<h3>机器人保安会伤人吗？研究人员：身体接触需要人的授权</h3>
+<h3>AI云服务商Nscale据悉拟赴美IPO，最高募资30亿美元</h3>
 
-<p><a>http://www.lcjuanbanji.com/kongbu/3750130.html</a></p>
+<p><a href='https://github.com/hevwybsv-art/caodi202607/blob/main/20260822-g619d16j.md'>AI云服务商Nscale据悉拟赴美IPO，最高募资30亿美元</a></p>
 
-<h3>科普:长周期的底部和短周期的底部 有什么不同</h3>
+<h3>土耳其请求国际刑警组织对内塔尼亚胡发出红色通缉令</h3>
 
-<p><a>http://www.diczs.com.cn/show/6443617.html</a></p>
+<p><a href='https://github.com/nadialylaouliba3944-blip/wenhua202608/blob/main/20260822-wows0joc.md'>土耳其请求国际刑警组织对内塔尼亚胡发出红色通缉令</a></p>
 
-<h3>EasyMarkets易信:金价回踩检验突破质量</h3>
+<h3>荷兰数据保护局对优步处以8.25亿欧元罚款，或成《通用数据保护条例》第二大罚单</h3>
 
-<p><a>http://m.blog.idxvs.cn/Article/details/02460281.sHtML</a></p>
+<p><a href='https://github.com/bdor2v-code/qiche202608/blob/main/20260822-9v92zoq6.md'>荷兰数据保护局对优步处以8.25亿欧元罚款，或成《通用数据保护条例》第二大罚单</a></p>
 
-<h3>汤姆李：标普 500 指数有望在本月底重返历史高位</h3>
+<h3>荷兰数据保护局对优步处以8.25亿欧元罚款，或成《通用数据保护条例》第二大罚单</h3>
 
-<p><a>http://h5.blog.zbqbg.cn/Article/details/62458460.sHtML</a></p>
+<p><a href='https://github.com/lindsayawren-sys/elwn49z0ad/blob/main/20260822-riqs87g0.md'>荷兰数据保护局对优步处以8.25亿欧元罚款，或成《通用数据保护条例》第二大罚单</a></p>
+
+<h3>比特币单周飙升逾22%创三年最大涨幅，政策利好与逼空行情共振</h3>
+
+<p><a href='https://github.com/adelinafreyjatlhgja6901-tech/wenhua202608/blob/main/20260822-10pj6hrv.md'>比特币单周飙升逾22%创三年最大涨幅，政策利好与逼空行情共振</a></p>
+
+<h3>今年第18、19号台风同时活跃 会怎样影响我国？</h3>
+
+<p><a href='https://github.com/fatimarubytiphxr0019-glitch/keji202608/blob/main/20260822-fyvh18os.md'>今年第18、19号台风同时活跃 会怎样影响我国？</a></p>
+
+<h3>Allspring投资主管：杰克逊霍尔会议比英伟达财报蕴含更大市场风险</h3>
+
+<p><a href='https://github.com/bernettcoia/20260718_15/blob/main/20260813-4k3sc2hd.md'>Allspring投资主管：杰克逊霍尔会议比英伟达财报蕴含更大市场风险</a></p>
+
+<h3>伊朗与阿曼外长通话，商讨恢复谈判条件及霍尔木兹海峡航运</h3>
+
+<p><a href='https://github.com/bernettcoia/20260718_17/blob/main/20260813-m8aqt26h.md'>伊朗与阿曼外长通话，商讨恢复谈判条件及霍尔木兹海峡航运</a></p>
 
 <h3>超100家创科企业已签约河套香港园区</h3>
 
-<p><a>http://www.blog.gnu8k.cn/Article/details/34850035.sHtML</a></p>
-
-<h3>海南洋浦港审批便利化新举措提升国际船舶进口岸效率</h3>
-
-<p><a>http://www.lcjuanbanji.com/kongbu/6246390.html</a></p>
-
-<h3>这些“美女帅哥”竟然是机器人</h3>
-
-<p><a>http://www.meibaolong.com.cn/kongbu/3164390.html</a></p>
-
-<h3>机器人行业新一轮“军备竞赛”：谁能拍出最吸睛的造势宣传片？</h3>
-
-<p><a>http://5g.blog.mzesu.cn/Article/details/92153068.sHtML</a></p>
-
-<h3>这些“美女帅哥”竟然是机器人</h3>
-
-<p><a>http://www.baike.utklr.cn/Article/details/94876730.sHtML</a></p>
-
-<h3>资金“抄底”，加仓这些方向</h3>
-
-<p><a>http://h5.blog.idxvs.cn/Article/details/51870525.sHtML</a></p>
-
-<h3>美军称5月以来已协助6.6亿桶石油通过霍尔木兹海峡</h3>
-
-<p><a>http://wap.blog.mzesu.cn/Article/details/60181809.sHtML</a></p>
-
-<h3>海南洋浦港审批便利化新举措提升国际船舶进口岸效率</h3>
-
-<p><a>http://www.baike.dnhxi.cn/Article/details/87115165.sHtML</a></p>
-
-<h3>WPS Comate百城AI智能体赋能计划启动</h3>
-
-<p><a>http://pudong.mq163.net/Article/details/86301036.sHtML</a></p>
+<p><a href='https://github.com/bernettcoia/20260718_19/blob/main/20260814-hclkm0pz.md'>超100家创科企业已签约河套香港园区</a></p>
 
 <h3>美国政府紧急下场救市难解美债危局</h3>
 
-<p><a>http://m.blog.cyxkjyxgs.cn/Article/details/79818690.sHtML</a></p>
-
-<h3>EasyMarkets易信:金价回踩检验突破质量</h3>
-
-<p><a>http://xuhui.mq163.net/Article/details/10562657.sHtML</a></p>
-
-<h3>英伟达与华尔街六家机构筹建超5000亿美元AI算力融资平台，8月26日财报将成检验节点</h3>
-
-<p><a>http://songjiang.mq163.net/Article/details/08062753.sHtML</a></p>
-
-<h3>广西军区举办抢险救灾先进典型事迹报告会</h3>
-
-<p><a>http://wap.blog.idxvs.cn/Article/details/22069746.sHtML</a></p>
+<p><a href='https://github.com/dmwke4-ops/caodi202608/blob/main/20260801_chbgp.md'>美国政府紧急下场救市难解美债危局</a></p>
 
 <h3>土耳其请求国际刑警组织对内塔尼亚胡发出红色通缉令</h3>
 
-<p><a>http://5g.blog.htiut.cn/Article/details/39217479.sHtML</a></p>
+<p><a href='https://github.com/dmwke4-ops/fangchan202608/blob/main/20260815-w8wh9u13.md'>土耳其请求国际刑警组织对内塔尼亚胡发出红色通缉令</a></p>
 
-<h3>美国企业活动扩张步伐创2022年以来最快</h3>
+<h3>这些“美女帅哥”竟然是机器人</h3>
 
-<p><a>http://www.dqcad.com/kongbu/2725368.html</a></p>
+<p><a href='https://github.com/dmwke4-ops/jiaoyu202608/blob/main/20260811-sa5fezit.md'>这些“美女帅哥”竟然是机器人</a></p>
 
-<h3>CPT Markets:链上经济区聚合流动性</h3>
+<h3>城堡投资：已出售逾40亿美元购自Situational Awareness的持仓，化解80%以上风险</h3>
 
-<p><a>http://hongkou.mq163.net/Article/details/23791538.sHtML</a></p>
+<p><a href='https://github.com/dmwke4-ops/meishi202608/blob/main/20260802_qmqcl.md'>城堡投资：已出售逾40亿美元购自Situational Awareness的持仓，化解80%以上风险</a></p>
 
-<h3>英伟达与华尔街六家机构筹建超5000亿美元AI算力融资平台，8月26日财报将成检验节点</h3>
+<h3>高盛：黄金看涨期权需求激增，或放大金价双向波动</h3>
 
-<p><a>http://bbs.blog.xy589.cn/Article/details/35052974.sHtML</a></p>
+<p><a href='https://github.com/dmwke4-ops/shenghuo202608/blob/main/20260816-kefzptcg.md'>高盛：黄金看涨期权需求激增，或放大金价双向波动</a></p>
 
-<h3>CBCX:金银分化观察资金轮动</h3>
+<h3>美国债市：美债全线下跌 短债收益率升幅领先</h3>
 
-<p><a>http://bbs.blog.tacaishix.cn/Article/details/24540167.sHtML</a></p>
+<p><a href='https://github.com/dmwke4-ops/wenhua202608/blob/main/20260812-fqhdsbib.md'>美国债市：美债全线下跌 短债收益率升幅领先</a></p>
 
-<h3>汤姆李：标普 500 指数有望在本月底重返历史高位</h3>
+<h3>Anthropic聘请谷歌芯片定制芯片项目创始人 为进军自研半导体做准备</h3>
 
-<p><a>http://www.blog.vzetx.cn/Article/details/88607567.sHtML</a></p>
-
-<h3>超100家创科企业已签约河套香港园区</h3>
-
-<p><a>http://changning.mq163.net/Article/details/42304207.sHtML</a></p>
-
-<h3>华裔青少年沉浸式体验侨批文化：纸短情长寄乡愁</h3>
-
-<p><a>http://www.lcjuanbanji.com/kongbu/1832334.html</a></p>
-
-<h3>美国企业活动扩张步伐创2022年以来最快</h3>
-
-<p><a>http://www.liyikj.com/kongbu/6022723.html</a></p>
-
-<h3>几页剧本看哭山东汉子！《孔繁森》主演揭秘幕后：全程含泪克制表演</h3>
-
-<p><a>http://bbs.blog.tacaishix.cn/Article/details/05037349.sHtML</a></p>
-
-<h3>镇江贝斯特新材料递表港交所 独家保荐为国泰海通</h3>
-
-<p><a>http://bbs.blog.xy589.cn/Article/04885670.sHtML</a></p>
-
-<h3>机器人行业新一轮“军备竞赛”：谁能拍出最吸睛的造势宣传片？</h3>
-
-<p><a>http://www.baike.psptwl.cn/Article/details/01198696.sHtML</a></p>
-
-<h3>WPS Comate百城AI智能体赋能计划启动</h3>
-
-<p><a>http://h5.blog.shandonglyxcl.cn/Article/details/50191542.sHtML</a></p>
-
-<h3>机器人保安会伤人吗？研究人员：身体接触需要人的授权</h3>
-
-<p><a>http://bbs.blog.jxjmjbj.cn/Article/47036272.sHtML</a></p>
-
-<h3>城堡投资：7月买入Situational Awareness部分头寸，多策略基金月涨5.94%</h3>
-
-<p><a>http://wap.blog.mzesu.cn/Article/details/84242986.sHtML</a></p>
+<p><a href='https://github.com/dmwke4-ops/youxi202608/blob/main/20260803_qh7d2.md'>Anthropic聘请谷歌芯片定制芯片项目创始人 为进军自研半导体做准备</a></p>
 
 <h3>土耳其请求国际刑警组织对内塔尼亚胡发出红色通缉令</h3>
 
-<p><a>http://www.diczs.com.cn/about/4651188.html</a></p>
+<p><a href='https://github.com/dmwke4-ops/ziran202608/blob/main/20260817-ia0yclk7.md'>土耳其请求国际刑警组织对内塔尼亚胡发出红色通缉令</a></p>
 
-<h3>英伟达与华尔街六家机构筹建超5000亿美元AI算力融资平台，8月26日财报将成检验节点</h3>
+<h3>国际足联就世界杯期间多起事件对阿根廷足协作出处罚</h3>
 
-<p><a>http://m.blog.shandonglyxcl.cn/Article/details/94922818.sHtML</a></p>
+<p><a href='https://github.com/ero9esx-creator/dianying202608/blob/main/20260813-45sd9wjj.md'>国际足联就世界杯期间多起事件对阿根廷足协作出处罚</a></p>
 
-<h3>巴拿马运河因厄尔尼诺干旱下调通航配额，9月起日均由约36艘降至34艘再至32艘</h3>
+<h3>苹果裁减Siri和Vision Pro团队岗位 资源重心转向AI与新设备</h3>
 
-<p><a>http://pudong.mq163.net/Article/details/39400179.sHtML</a></p>
+<p><a href='https://github.com/ero9esx-creator/jiankang202608/blob/main/20260806-xqu5rje2.md'>苹果裁减Siri和Vision Pro团队岗位 资源重心转向AI与新设备</a></p>
 
-<h3>机器人保安会伤人吗？研究人员：身体接触需要人的授权</h3>
+<h3>今年第18、19号台风同时活跃 会怎样影响我国？</h3>
 
-<p><a>http://www.blog.bjqkly.cn/Article/details/69120547.sHtML</a></p>
-
-<h3>M4Markets:流动宽松重塑黄金角色</h3>
-
-<p><a>http://bbs.blog.fstzyy.cn/Article/details/47761262.sHtML</a></p>
-
-<h3>纳指有望结束五连跌 比特币大涨之际Strategy股价上扬</h3>
-
-<p><a>http://www.collect-as.com/kongbu/0917055.html</a></p>
-
-<h3>海南洋浦港审批便利化新举措提升国际船舶进口岸效率</h3>
-
-<p><a>http://m.blog.hudee.com.cn/Article/details/75598360.sHtML</a></p>
-
-<h3>镇江贝斯特新材料递表港交所 独家保荐为国泰海通</h3>
-
-<p><a>http://www.lbmfj.cc/kongbu/5397128.html</a></p>
-
-<h3>重要指数调整！华虹宏力、潍柴动力被纳入</h3>
-
-<p><a>http://bbs.blog.xbshzp.cn/Article/75591045.sHtML</a></p>
-
-<h3>特朗普政府聘任摩根大通前高管马特・扎姆斯为社会保障局顾问</h3>
-
-<p><a>http://www.blog.bjqkly.cn/Article/details/39148788.sHtML</a></p>
-
-<h3>特朗普将允许30万吨碎牛肉免配额外关税进口</h3>
-
-<p><a>http://www.blog.vvcker.cn/Article/details/18506637.sHtML</a></p>
-
-<h3>多赛道科技企业集中发力 科创板提质增效2.0行动迈入实质阶段</h3>
-
-<p><a>http://m.baike.mzesu.cn/Article/details/29467295.sHtML</a></p>
-
-<h3>美军称5月以来已协助6.6亿桶石油通过霍尔木兹海峡</h3>
-
-<p><a>http://www.bbs.to39.cn/Article/details/54001082.sHtML</a></p>
-
-<h3>镇江贝斯特新材料递表港交所 独家保荐为国泰海通</h3>
-
-<p><a>http://www.bbs.jhlgscfw.cn/Article/details/29389501.sHtML</a></p>
-
-<h3>Vatee万腾:智能代理拓宽交易接口</h3>
-
-<p><a>http://www.gnu8k.cn/Article/details/03552422.sHtML</a></p>
-
-<h3>镇江贝斯特新材料递表港交所 独家保荐为国泰海通</h3>
-
-<p><a>http://5g.blog.to39.cn/Article/details/63626975.sHtML</a></p>
-
-<h3>特朗普将允许30万吨碎牛肉免配额外关税进口</h3>
-
-<p><a>http://www.bjpbkw.cn/Article/details/92883510.sHtML</a></p>
-
-<h3>山西昔阳发现迄今最高等级夏代墓葬</h3>
-
-<p><a>http://h5.blog.mzesu.cn/Article/details/69080469.sHtML</a></p>
-
-<h3>几页剧本看哭山东汉子！《孔繁森》主演揭秘幕后：全程含泪克制表演</h3>
-
-<p><a>http://h5.blog.to39.cn/Article/details/82318667.sHtML</a></p>
-
-<h3>RadexMarkets瑞德克斯:杠杆泡沫出清改善结构</h3>
-
-<p><a>http://www.liyikj.com/kongbu/1914425.html</a></p>
-
-<h3>纳指有望结束五连跌 比特币大涨之际Strategy股价上扬</h3>
-
-<p><a>http://bbs.blog.kangkuihe.cn/Article/details/10476771.sHtML</a></p>
-
-<h3>CPT Markets:链上经济区聚合流动性</h3>
-
-<p><a>http://www.mpgwvc.cn/Article/details/92699090.sHtML</a></p>
-
-<h3>英伟达与华尔街六家机构筹建超5000亿美元AI算力融资平台，8月26日财报将成检验节点</h3>
-
-<p><a>http://www.wzjgxh.com/kongbu/7490676.html</a></p>
-
-<h3>GO Markets:实际利率趋稳改善金市</h3>
-
-<p><a>http://www.liyikj.com/kongbu/6509805.html</a></p>
-
-<h3>报告：受美国签证政策收紧影响，国际学生入学人数下滑</h3>
-
-<p><a>http://www.jnzd.cn/kongbu/3954339.html</a></p>
-
-<h3>特朗普将允许30万吨碎牛肉免配额外关税进口</h3>
-
-<p><a>http://www.blog.hudee.com.cn/Article/details/80794476.sHtML</a></p>
-
-<h3>ATFX:日本7月全国CPI年率升高0.3个百分点至1.9%</h3>
-
-<p><a>http://www.mpgwvc.cn/Article/details/01059607.sHtML</a></p>
-
-<h3>美国政府紧急下场救市难解美债危局</h3>
-
-<p><a>http://bbs.blog.sassa.cn/Article/details/51167607.sHtML</a></p>
-
-<h3>资金“抄底”，加仓这些方向</h3>
-
-<p><a>http://5g.blog.oilerequation.cn/Article/details/29009350.sHtML</a></p>
-
-<h3>华裔青少年沉浸式体验侨批文化：纸短情长寄乡愁</h3>
-
-<p><a>http://xuhui.mq163.net/Article/details/56313359.sHtML</a></p>
-
-<h3>黄金升至三个月高位，去年令金价飙升的“贬值交易”全面回潮</h3>
-
-<p><a>http://m.baike.mzesu.cn/Article/details/61004619.sHtML</a></p>
-
-<h3>重要指数调整！华虹宏力、潍柴动力被纳入</h3>
-
-<p><a>http://www.cdwqsj.com/kongbu/2502418.html</a></p>
-
-<h3>美国企业活动扩张步伐创2022年以来最快</h3>
-
-<p><a>http://www.blog.ahoiyom.cn/Article/75644414.sHtML</a></p>
-
-<h3>土耳其请求国际刑警组织对内塔尼亚胡发出红色通缉令</h3>
-
-<p><a>http://www.blog.xinlizixunshi8.cn/Article/details/46300139.sHtML</a></p>
-
-<h3>CBCX:金银分化观察资金轮动</h3>
-
-<p><a>http://bbs.blog.kangkuihe.cn/Article/details/70489042.sHtML</a></p>
-
-<h3>摩根大通：建议买入沃尔玛</h3>
-
-<p><a>http://bbs.blog.vvcker.cn/Article/details/25804893.sHtML</a></p>
-
-<h3>科普:长周期的底部和短周期的底部 有什么不同</h3>
-
-<p><a>http://wap.blog.jhlgscfw.cn/Article/details/22990677.sHtML</a></p>
-
-<h3>纳指有望结束五连跌 比特币大涨之际Strategy股价上扬</h3>
-
-<p><a>http://www.blog.tlfxc.cn/Article/details/06400699.sHtML</a></p>
-
-<h3>CBCX:金银分化观察资金轮动</h3>
-
-<p><a>http://www.blog.xy589.cn/Article/22854735.sHtML</a></p>
-
-<h3>报告：受美国签证政策收紧影响，国际学生入学人数下滑</h3>
-
-<p><a>http://bbs.blog.bjqkly.cn/Article/details/54695090.sHtML</a></p>
-
-<h3>资金“抄底”，加仓这些方向</h3>
-
-<p><a>http://www.blog.tj-epc.cn/Article/01478648.sHtML</a></p>
-
-<h3>CBCX:金银分化观察资金轮动</h3>
-
-<p><a>http://bbs.blog.tacaishix.cn/Article/details/70451161.sHtML</a></p>
-
-<h3>GO Markets:实际利率趋稳改善金市</h3>
-
-<p><a>http://www.bbs.tacaishix.cn/Article/details/03261229.sHtML</a></p>
-
-<h3>Mega安汇:生态基金调整代币用途</h3>
-
-<p><a>http://m.bbs.mzesu.cn/Article/details/79296072.sHtML</a></p>
-
-<h3>中国印尼外长防长“2+2”对话机制举行第二次部长级会议</h3>
-
-<p><a>http://xuhui.mq163.net/Article/details/31328351.sHtML</a></p>
-
-<h3>几页剧本看哭山东汉子！《孔繁森》主演揭秘幕后：全程含泪克制表演</h3>
-
-<p><a>http://m.blog.htiut.cn/Article/details/21261566.sHtML</a></p>
-
-<h3>成都车展观察：新能源“西进” 车企从堆参数到磕场景</h3>
-
-<p><a>http://m.bbs.zbqbg.cn/Article/details/99608400.sHtML</a></p>
-
-<h3>广西军区举办抢险救灾先进典型事迹报告会</h3>
-
-<p><a>http://www.jnzd.cn/kongbu/1882247.html</a></p>
-
-<h3>中国印尼外长防长“2+2”对话机制举行第二次部长级会议</h3>
-
-<p><a>http://m.blog.oilerequation.cn/Article/details/49761052.sHtML</a></p>
-
-<h3>山东临沂一处独立平房院落发生爆炸 致1人死亡2人失联</h3>
-
-<p><a>http://5g.blog.oilerequation.cn/Article/details/90580808.sHtML</a></p>
-
-<h3>多赛道科技企业集中发力 科创板提质增效2.0行动迈入实质阶段</h3>
-
-<p><a>http://www.blog.oilerequation.cn/Article/details/51511027.sHtML</a></p>
+<p><a href='https://github.com/ero9esx-creator/keji202608/blob/main/20260818-ekitx5l5.md'>今年第18、19号台风同时活跃 会怎样影响我国？</a></p>
 
 <h3>世界围棋“八冠王”古力与东南亚国家棋手上演“车轮战”</h3>
 
-<p><a>http://www.leshengguorun.top/Article/details/88263360.sHtML</a></p>
+<p><a href='https://github.com/ero9esx-creator/qiche202608/blob/main/20260813-ma7oltwi.md'>世界围棋“八冠王”古力与东南亚国家棋手上演“车轮战”</a></p>
 
-<h3>特斯拉、优步、Waymo获准在拉斯维加斯最多投放8000台无人出租车</h3>
+<h3>高盛：黄金看涨期权需求激增，或放大金价双向波动</h3>
 
-<p><a>http://www.jnzd.cn/kongbu/7266072.html</a></p>
+<p><a href='https://github.com/ero9esx-creator/tiyu202608/blob/main/20260807-ivvj0ssj.md'>高盛：黄金看涨期权需求激增，或放大金价双向波动</a></p>
 
-<h3>纳指有望结束五连跌 比特币大涨之际Strategy股价上扬</h3>
+<h3>Allspring投资主管：杰克逊霍尔会议比英伟达财报蕴含更大市场风险</h3>
 
-<p><a>http://m.baike.htiut.cn/Article/details/87015009.sHtML</a></p>
+<p><a href='https://github.com/ero9esx-creator/xinwen202608/blob/main/20260819-eci3irld.md'>Allspring投资主管：杰克逊霍尔会议比英伟达财报蕴含更大市场风险</a></p>
 
-<h3>山东临沂一处独立平房院落发生爆炸 致1人死亡2人失联</h3>
+<h3>桥水基金创始人的债务周期警告：美债面临“三年之痒”，硬通货成避险首选</h3>
 
-<p><a>http://www.blog.tj-epc.cn/Article/24088563.sHtML</a></p>
+<p><a href='https://github.com/ero9esx-creator/yule202608/blob/main/20260814-31nsuiwf.md'>桥水基金创始人的债务周期警告：美债面临“三年之痒”，硬通货成避险首选</a></p>
 
-<h3>土耳其请求国际刑警组织对内塔尼亚胡发出红色通缉令</h3>
+<h3>中国印尼外长防长“2+2”对话机制举行第二次部长级会议</h3>
 
-<p><a>http://www.jnzd.cn/kongbu/0996975.html</a></p>
+<p><a href='https://github.com/fatimarubytiphxr0019-glitch/guangming202608/blob/main/20260812-0sgizjvc.md'>中国印尼外长防长“2+2”对话机制举行第二次部长级会议</a></p>
 
-<h3>美国政府紧急下场救市难解美债危局</h3>
+<h3>日本新财年预算申请额或超130万亿日元</h3>
 
-<p><a>http://www.yxbg.vip/kongbu/9321577.html</a></p>
+<p><a href='https://github.com/fatimarubytiphxr0019-glitch/wenhua202608/blob/main/20260818-0wk9ketd.md'>日本新财年预算申请额或超130万亿日元</a></p>
 
-<h3>NCE平台:现货牌照完善服务边界</h3>
+<h2>外部参考</h2>
 
-<p><a>http://www.blog.bjqkly.cn/Article/details/24045906.sHtML</a></p>
+<h3>今年7月欧盟油价同比增长16.9%</h3>
 
-<h3>多赛道科技企业集中发力 科创板提质增效2.0行动迈入实质阶段</h3>
+<p><a>http://bbs.blog.jxjmjbj.cn/Article/21247933.sHtML</a></p>
 
-<p><a>http://bbs.blog.cyxkjyxgs.cn/Article/details/42658301.sHtML</a></p>
+<h3>越南青年赴广西研学 感知中国科创活力</h3>
+
+<p><a>http://www.blog.keyoure.com.cn/Article/details/73885570.sHtML</a></p>
+
+<h3>8月22日收盘：道指飙升500点 长端美债收益率持续走高 三大指数周线均录得下跌</h3>
+
+<p><a>http://bbs.blog.mpgwvc.cn/Article/details/97528394.sHtML</a></p>
+
+<h3>特朗普提议尽快与巴西重启贸易谈判</h3>
+
+<p><a>http://wap.blog.jhlgscfw.cn/Article/details/73803355.sHtML</a></p>
+
+<h3>英国7月公共部门借款18亿英镑，高于预算责任办公室预期</h3>
+
+<p><a>http://h5.blog.idxvs.cn/Article/details/24076547.sHtML</a></p>
+
+<h3>几页剧本看哭山东汉子！《孔繁森》主演揭秘幕后：全程含泪克制表演</h3>
+
+<p><a>http://bbs.blog.xy589.cn/Article/details/62750356.sHtML</a></p>
+
+<h3>Anthropic聘请谷歌芯片定制芯片项目创始人 为进军自研半导体做准备</h3>
+
+<p><a>http://5g.blog.tacaishix.cn/Article/details/56740040.sHtML</a></p>
+
+<h3>城堡投资：7月买入Situational Awareness部分头寸，多策略基金月涨5.94%</h3>
+
+<p><a>http://www.chunqiujiuye.cc/kongbu/7344715.html</a></p>
+
+<h3>华裔青少年沉浸式体验侨批文化：纸短情长寄乡愁</h3>
+
+<p><a>http://www.jnzd.cn/kongbu/8718723.html</a></p>
+
+<h3>日本新财年预算申请额或超130万亿日元</h3>
+
+<p><a>http://m.blog.oilerequation.cn/Article/details/50199229.sHtML</a></p>
+
+<h3>伊朗外长：美国对伊经济施压行动“注定失败”</h3>
+
+<p><a>http://www.blog.utklr.cn/Article/details/59637829.sHtML</a></p>
+
+<h3>旅德大熊猫双胞胎两岁生日记</h3>
+
+<p><a>http://www.diczs.com.cn/news/38331151.sHtML</a></p>
+
+<h3>Allspring投资主管：杰克逊霍尔会议比英伟达财报蕴含更大市场风险</h3>
+
+<p><a>http://bbs.blog.bjqkly.cn/Article/details/07339151.sHtML</a></p>
+
+<h3>越南青年赴广西研学 感知中国科创活力</h3>
+
+<p><a>http://h5.blog.jhlgscfw.cn/Article/details/99279318.sHtML</a></p>
+
+<h3>AI云服务商Nscale据悉拟赴美IPO，最高募资30亿美元</h3>
+
+<p><a>http://yangpu.mq163.net/Article/details/55708438.sHtML</a></p>
+
+<h3>今年7月欧盟油价同比增长16.9%</h3>
+
+<p><a>http://m.bbs.idxvs.cn/Article/details/12897475.sHtML</a></p>
+
+<h3>特朗普宣布90天内对最多30万吨绞肉用牛肉免征配额外关税，并称将按低于市价25%销售，活牛期货下跌</h3>
+
+<p><a>http://m.blog.to39.cn/Article/details/61835745.sHtML</a></p>
+
+<h3>中天期货:商品指数商品继续上行 白银再度上行</h3>
+
+<p><a>http://5g.blog.jhlgscfw.cn/Article/details/25753398.sHtML</a></p>
 
 <h3>英伟达与华尔街六家机构筹建超5000亿美元AI算力融资平台，8月26日财报将成检验节点</h3>
 
-<p><a>http://www.gongwen.net.cn/Article/details/69525006.sHtML</a></p>
+<p><a>http://m.blog.oilerequation.cn/Article/details/53838987.sHtML</a></p>
 
-<h3>GO Markets:实际利率趋稳改善金市</h3>
+<h3>旅德大熊猫双胞胎两岁生日记</h3>
 
-<p><a>http://bbs.blog.vvcker.cn/Article/details/00071085.sHtML</a></p>
+<p><a>http://bbs.blog.tlfxc.cn/Article/details/14785651.sHtML</a></p>
 
-<h3>摩根大通：建议买入沃尔玛</h3>
+<h3>成都车展观察：新能源“西进” 车企从堆参数到磕场景</h3>
 
-<p><a>http://bbs.blog.cyxkjyxgs.cn/Article/details/99070696.sHtML</a></p>
+<p><a>http://h5.blog.zbqbg.cn/Article/details/36703705.sHtML</a></p>
 
-<h3>Mega安汇:生态基金调整代币用途</h3>
+<h3>大宗商品综述：油价录得周涨幅 锌价走高 金价大涨</h3>
 
-<p><a>http://bbs.blog.kangkuihe.cn/Article/details/34757656.sHtML</a></p>
+<p><a>http://www.blog.sassa.cn/Article/details/59817265.sHtML</a></p>
+
+<h3>英伟达与华尔街六家机构筹建超5000亿美元AI算力融资平台，8月26日财报将成检验节点</h3>
+
+<p><a>http://www.bbs.aigongjuji.cn/Article/details/46904518.sHtML</a></p>
+
+<h3>羽毛球世锦赛：中国队五对双打组合晋级四强</h3>
+
+<p><a>http://www.baike.psptwl.cn/Article/details/65753194.sHtML</a></p>
+
+<h3>英国7月公共部门借款18亿英镑，高于预算责任办公室预期</h3>
+
+<p><a>http://yangpu.mq163.net/Article/details/22715548.sHtML</a></p>
+
+<h3>今年第18、19号台风同时活跃 会怎样影响我国？</h3>
+
+<p><a>http://wap.blog.oilerequation.cn/Article/details/63738879.sHtML</a></p>
+
+<h3>世界围棋“八冠王”古力与东南亚国家棋手上演“车轮战”</h3>
+
+<p><a>http://m.blog.fstzyy.cn/Article/details/99716352.sHtML</a></p>
+
+<h3>原油：中东局势以及亚洲需求推动油价录得周涨幅</h3>
+
+<p><a>http://m.blog.tacaishix.cn/Article/details/33354955.sHtML</a></p>
+
+<h3>旅德大熊猫双胞胎两岁生日记</h3>
+
+<p><a>http://www.xbshzp.cn/Article/57778302.sHtML</a></p>
+
+<h3>荷兰数据保护局对优步处以8.25亿欧元罚款，或成《通用数据保护条例》第二大罚单</h3>
+
+<p><a>http://www.ahoiyom.cn/Article/26104559.sHtML</a></p>
+
+<h3>中天期货:商品指数商品继续上行 白银再度上行</h3>
+
+<p><a>http://bbs.blog.mpgwvc.cn/Article/details/31494967.sHtML</a></p>
+
+<h3>城堡投资：已出售逾40亿美元购自Situational Awareness的持仓，化解80%以上风险</h3>
+
+<p><a>http://www.diczs.com.cn/news/40344246.sHtML</a></p>
+
+<h3>伊朗与阿曼外长通话，商讨恢复谈判条件及霍尔木兹海峡航运</h3>
+
+<p><a>http://5g.blog.tacaishix.cn/Article/details/20619318.sHtML</a></p>
+
+<h3>网传飞机“散云止雨”加重内蒙古旱情？真相来了</h3>
+
+<p><a>http://www.86169708.com/kongbu/3514216.html</a></p>
+
+<h3>旅德大熊猫双胞胎两岁生日记</h3>
+
+<p><a>http://www.chunqiujiuye.cc/kongbu/0168038.html</a></p>
+
+<h3>Anthropic聘请谷歌芯片定制芯片项目创始人 为进军自研半导体做准备</h3>
+
+<p><a>http://h5.blog.jhlgscfw.cn/Article/details/64921005.sHtML</a></p>
+
+<h3>特朗普推出新关税宽减措施 旨在压低牛绞肉价格</h3>
+
+<p><a>http://www.nuozun.com/kongbu/5312033.html</a></p>
+
+<h3>英国7月公共部门借款18亿英镑，高于预算责任办公室预期</h3>
+
+<p><a>http://www.cdwqsj.com/kongbu/6923529.html</a></p>
+
+<h3>旅德大熊猫双胞胎两岁生日记</h3>
+
+<p><a>http://www.kangkuihe.cn/Article/details/97550966.sHtML</a></p>
+
+<h3>苹果裁减Siri和Vision Pro团队岗位 资源重心转向AI与新设备</h3>
+
+<p><a>http://bbs.blog.to39.cn/Article/details/86943746.sHtML</a></p>
+
+<h3>欧洲债市企稳跑赢美债，收益率曲线小幅“牛陡”显现</h3>
+
+<p><a>http://www.blog.aigongjuji.cn/Article/details/57990666.sHtML</a></p>
+
+<h3>特朗普推出新关税宽减措施 旨在压低牛绞肉价格</h3>
+
+<p><a>http://bbs.blog.tj-epc.cn/Article/37600187.sHtML</a></p>
+
+<h3>原油：中东局势以及亚洲需求推动油价录得周涨幅</h3>
+
+<p><a>http://bbs.blog.xy589.cn/Article/38793844.sHtML</a></p>
+
+<h3>今年7月欧盟油价同比增长16.9%</h3>
+
+<p><a>http://h5.blog.aigongjuji.cn/Article/details/12231089.sHtML</a></p>
+
+<h3>英伟达与华尔街六家机构筹建超5000亿美元AI算力融资平台，8月26日财报将成检验节点</h3>
+
+<p><a>http://www.bbs.psptwl.cn/Article/details/33238548.sHtML</a></p>
+
+<h3>城堡投资：7月买入Situational Awareness部分头寸，多策略基金月涨5.94%</h3>
+
+<p><a>http://www.yjee.com.cn/kongbu/0542082.html</a></p>
+
+<h3>能源板块迎来关注：对冲基金重点布局标的一览</h3>
+
+<p><a>http://wap.blog.jhlgscfw.cn/Article/details/49587422.sHtML</a></p>
+
+<h3>羽毛球世锦赛：中国队五对双打组合晋级四强</h3>
+
+<p><a>http://m.blog.jhlgscfw.cn/Article/details/02612667.sHtML</a></p>
+
+<h3>Allspring投资主管：杰克逊霍尔会议比英伟达财报蕴含更大市场风险</h3>
+
+<p><a>http://m.blog.xinlizixunshi8.cn/Article/details/09655230.sHtML</a></p>
+
+<h3>华裔青少年沉浸式体验侨批文化：纸短情长寄乡愁</h3>
+
+<p><a>http://m.blog.keyoure.com.cn/Article/details/01722999.sHtML</a></p>
+
+<h3>中国印尼外长防长“2+2”对话机制举行第二次部长级会议</h3>
+
+<p><a>http://bbs.blog.xy589.cn/Article/details/63975411.sHtML</a></p>
+
+<h3>机器人保安会伤人吗？研究人员：身体接触需要人的授权</h3>
+
+<p><a>http://minhang.mq163.net/Article/details/00276028.sHtML</a></p>
+
+<h3>英伟达将支付60亿美元以获得Poolside AI模型授权 并拟吸纳其员工</h3>
+
+<p><a>http://www.bbs.vzetx.cn/Article/details/66297123.sHtML</a></p>
+
+<h3>网传飞机“散云止雨”加重内蒙古旱情？真相来了</h3>
+
+<p><a>http://baoshan.mq163.net/Article/details/07982579.sHtML</a></p>
+
+<h3>华裔青少年沉浸式体验侨批文化：纸短情长寄乡愁</h3>
+
+<p><a>http://bbs.blog.bjpbkw.cn/Article/99224884.sHtML</a></p>
+
+<h3>城堡投资：已出售逾40亿美元购自Situational Awareness的持仓，化解80%以上风险</h3>
+
+<p><a>http://bbs.blog.bjpbkw.cn/Article/74596985.sHtML</a></p>
+
+<h3>羽毛球世锦赛：中国队五对双打组合晋级四强</h3>
+
+<p><a>http://www.blog.cyxkjyxgs.cn/Article/details/13335358.sHtML</a></p>
+
+<h3>今年7月欧盟油价同比增长16.9%</h3>
+
+<p><a>http://www.xbshzp.cn/Article/23012005.sHtML</a></p>
+
+<h3>超100家创科企业已签约河套香港园区</h3>
+
+<p><a>http://changning.mq163.net/Article/details/06628514.sHtML</a></p>
+
+<h3>零售股财报周收官在即，整体表现仍录得跌幅</h3>
+
+<p><a>http://pudong.mq163.net/Article/details/06830980.sHtML</a></p>
+
+<h3>今年第18、19号台风同时活跃 会怎样影响我国？</h3>
+
+<p><a>http://www.lay-sh.com/news/40450256.sHtML</a></p>
+
+<h3>美国债市：美债全线下跌 短债收益率升幅领先</h3>
+
+<p><a>http://www.blog.tlfxc.cn/Article/details/21673909.sHtML</a></p>
+
+<h3>伊朗与阿曼外长通话，商讨恢复谈判条件及霍尔木兹海峡航运</h3>
+
+<p><a>http://bbs.blog.xbshzp.cn/Article/03321753.sHtML</a></p>
+
+<h3>机器人保安会伤人吗？研究人员：身体接触需要人的授权</h3>
+
+<p><a>http://www.bbs.utklr.cn/Article/details/10868405.sHtML</a></p>
+
+<h3>国际足联就世界杯期间多起事件对阿根廷足协作出处罚</h3>
+
+<p><a>http://www.diczs.com.cn/show/1531939.html</a></p>
+
+<h3>硅谷企业如何抓住英超博彩广告管控带来的机遇</h3>
+
+<p><a>http://www.blog.psptwl.cn/Article/details/52327807.sHtML</a></p>
+
+<h3>特朗普宣布90天内对最多30万吨绞肉用牛肉免征配额外关税，并称将按低于市价25%销售，活牛期货下跌</h3>
+
+<p><a>http://bbs.blog.gnu8k.cn/Article/details/01757518.sHtML</a></p>
+
+<h3>零售股财报周收官在即，整体表现仍录得跌幅</h3>
+
+<p><a>http://m.blog.xinlizixunshi8.cn/Article/details/12845609.sHtML</a></p>
+
+<h3>中天期货:商品指数商品继续上行 白银再度上行</h3>
+
+<p><a>http://yjee.com.cn/kongbu/1523196.html</a></p>
+
+<h3>城堡投资：7月买入Situational Awareness部分头寸，多策略基金月涨5.94%</h3>
+
+<p><a>http://www.syzkjwl.cn/Article/50793758.sHtML</a></p>
+
+<h3>今年第18、19号台风同时活跃 会怎样影响我国？</h3>
+
+<p><a>http://www.nuozun.com/kongbu/6199264.html</a></p>
+
+<h3>荷兰数据保护局对优步处以8.25亿欧元罚款，或成《通用数据保护条例》第二大罚单</h3>
+
+<p><a>http://www.chunqiujiuye.cc/kongbu/3852995.html</a></p>
+
+<h3>今年7月欧盟油价同比增长16.9%</h3>
+
+<p><a>http://www.blog.jhlgscfw.cn/Article/details/20925493.sHtML</a></p>
+
+<h3>英国7月公共部门借款18亿英镑，高于预算责任办公室预期</h3>
+
+<p><a>http://bbs.blog.syzkjwl.cn/Article/09356794.sHtML</a></p>
+
+<h3>能源板块迎来关注：对冲基金重点布局标的一览</h3>
+
+<p><a>http://m.blog.tacaishix.cn/Article/details/51029097.sHtML</a></p>
+
+<h3>美国债市：美债全线下跌 短债收益率升幅领先</h3>
+
+<p><a>http://www.blog.vvcker.cn/Article/details/51054919.sHtML</a></p>
+
+<h3>苹果裁减Siri和Vision Pro团队岗位 资源重心转向AI与新设备</h3>
+
+<p><a>http://m.blog.oilerequation.cn/Article/details/08994377.sHtML</a></p>
+
+<h3>硅谷企业如何抓住英超博彩广告管控带来的机遇</h3>
+
+<p><a>http://h5.blog.tacaishix.cn/Article/details/55760249.sHtML</a></p>
+
+<h3>桥水基金创始人的债务周期警告：美债面临“三年之痒”，硬通货成避险首选</h3>
+
+<p><a>http://www.blog.hudee.com.cn/Article/details/11388751.sHtML</a></p>
+
+<h3>中国印尼外长防长“2+2”对话机制举行第二次部长级会议</h3>
+
+<p><a>http://www.vroad.net/news/50684049.sHtML</a></p>
+
+<h3>Allspring投资主管：杰克逊霍尔会议比英伟达财报蕴含更大市场风险</h3>
+
+<p><a>http://www.blog.hudee.com.cn/Article/details/25107659.sHtML</a></p>
+
+<h3>特朗普提议尽快与巴西重启贸易谈判</h3>
+
+<p><a>http://www.blog.kangkuihe.cn/Article/details/05705617.sHtML</a></p>
+
+<h3>欧洲债市企稳跑赢美债，收益率曲线小幅“牛陡”显现</h3>
+
+<p><a>http://m.blog.xinlizixunshi8.cn/Article/details/27855220.sHtML</a></p>
+
+<h3>英伟达与华尔街六家机构筹建超5000亿美元AI算力融资平台，8月26日财报将成检验节点</h3>
+
+<p><a>http://bbs.blog.gongwen.net.cn/Article/details/26770627.sHtML</a></p>
+
+<h3>财报密集周，零售股整体收跌</h3>
+
+<p><a>http://www.bbs.dnhxi.cn/Article/details/64703869.sHtML</a></p>
+
+<h3>欧洲债市企稳跑赢美债，收益率曲线小幅“牛陡”显现</h3>
+
+<p><a>http://hongkou.mq163.net/Article/details/57962269.sHtML</a></p>
+
+<h3>网传飞机“散云止雨”加重内蒙古旱情？真相来了</h3>
+
+<p><a>http://bbs.blog.mpgwvc.cn/Article/details/29735301.sHtML</a></p>
+
+<h3>欧洲债市企稳跑赢美债，收益率曲线小幅“牛陡”显现</h3>
+
+<p><a>http://www.vvcker.cn/Article/details/41974017.sHtML</a></p>
+
+<h3>这些“美女帅哥”竟然是机器人</h3>
+
+<p><a>http://changning.mq163.net/Article/details/97615905.sHtML</a></p>
+
+<h3>纽约汇市：美元跌至三个月低点，美债回购计划引发结构性看空情绪</h3>
+
+<p><a>http://m.blog.tacaishix.cn/Article/details/84402450.sHtML</a></p>
+
+<h3>旅德大熊猫双胞胎两岁生日记</h3>
+
+<p><a>http://www.blog.vzetx.cn/Article/details/56155480.sHtML</a></p>
+
+<h3>今年第18、19号台风同时活跃 会怎样影响我国？</h3>
+
+<p><a>http://www.shgkvc.cn/kongbu/8603365.html</a></p>
+
+<h3>城堡投资：7月买入Situational Awareness部分头寸，多策略基金月涨5.94%</h3>
+
+<p><a>http://h5.blog.jhlgscfw.cn/Article/details/86887923.sHtML</a></p>
+
+<h3>今年7月欧盟油价同比增长16.9%</h3>
+
+<p><a>http://www.yjee.com.cn/kongbu/7761894.html</a></p>
+
+<h3>零售股财报周收官在即，整体表现仍录得跌幅</h3>
+
+<p><a>http://wap.blog.jhlgscfw.cn/Article/details/02007919.sHtML</a></p>
+
+<h3>Allspring投资主管：杰克逊霍尔会议比英伟达财报蕴含更大市场风险</h3>
+
+<p><a>http://bbs.blog.vvcker.cn/Article/details/97524980.sHtML</a></p>
+
+<h3>Allspring投资主管：杰克逊霍尔会议比英伟达财报蕴含更大市场风险</h3>
+
+<p><a>http://bbs.blog.bjpbkw.cn/Article/73479325.sHtML</a></p>
+
+<h3>Anthropic聘请谷歌芯片定制芯片项目创始人 为进军自研半导体做准备</h3>
+
+<p><a>http://bbs.blog.sassa.cn/Article/details/18332056.sHtML</a></p>
+
+<h3>消息人士：博通债务交易规模预计最高可达700亿美元</h3>
+
+<p><a>http://5g.blog.mzesu.cn/Article/details/93287823.sHtML</a></p>
+
+<h3>荷兰数据保护局对优步处以8.25亿欧元罚款，或成《通用数据保护条例》第二大罚单</h3>
+
+<p><a>http://m.blog.fstzyy.cn/Article/details/73607581.sHtML</a></p>
+
+<h3>美国政府紧急下场救市难解美债危局</h3>
+
+<p><a>http://wap.blog.htiut.cn/Article/details/20525958.sHtML</a></p>
+
+<h3>英伟达与华尔街六家机构筹建超5000亿美元AI算力融资平台，8月26日财报将成检验节点</h3>
+
+<p><a>http://www.baike.dnhxi.cn/Article/details/81695424.sHtML</a></p>
+
+<h3>网传飞机“散云止雨”加重内蒙古旱情？真相来了</h3>
+
+<p><a>http://www.blog.aigongjuji.cn/Article/details/99536757.sHtML</a></p>
+
+<h3>零售股财报周收官在即，整体表现仍录得跌幅</h3>
+
+<p><a>http://songjiang.mq163.net/Article/details/36880353.sHtML</a></p>
+
+<h3>8月22日收盘：道指飙升500点 长端美债收益率持续走高 三大指数周线均录得下跌</h3>
+
+<p><a>http://www.ahoiyom.cn/Article/22816918.sHtML</a></p>
+
+<h3>美国债市：美债全线下跌 短债收益率升幅领先</h3>
+
+<p><a>http://www.fbgjc.com/kongbu/3766535.html</a></p>
+
+<h3>日本新财年预算申请额或超130万亿日元</h3>
+
+<p><a>http://h5.blog.mzesu.cn/Article/details/77606117.sHtML</a></p>
+
+<h3>中天期货:商品指数商品继续上行 白银再度上行</h3>
+
+<p><a>http://jiading.mq163.net/Article/details/67906366.sHtML</a></p>
+
+<h3>网传飞机“散云止雨”加重内蒙古旱情？真相来了</h3>
+
+<p><a>http://www.mpgwvc.cn/Article/details/02385789.sHtML</a></p>
+
+<h3>土耳其请求国际刑警组织对内塔尼亚胡发出红色通缉令</h3>
+
+<p><a>http://5g.blog.idxvs.cn/Article/details/98838593.sHtML</a></p>
+
+<h3>荷兰数据保护局对优步处以8.25亿欧元罚款，或成《通用数据保护条例》第二大罚单</h3>
+
+<p><a>http://bbs.blog.bjqkly.cn/Article/details/78001523.sHtML</a></p>
+
+<h3>英国7月公共部门借款18亿英镑，高于预算责任办公室预期</h3>
+
+<p><a>http://wap.blog.jhlgscfw.cn/Article/details/45401281.sHtML</a></p>
+
+<h3>欧洲股市创月初以来最大涨幅，市场稍作休整等待新催化剂</h3>
+
+<p><a>http://m.blog.shandonglyxcl.cn/Article/details/02761411.sHtML</a></p>
+
+<h3>纽约汇市：美元跌至三个月低点，美债回购计划引发结构性看空情绪</h3>
+
+<p><a>http://www.diczs.com.cn/about/8805565.html</a></p>
+
+<h3>越南青年赴广西研学 感知中国科创活力</h3>
+
+<p><a>http://changning.mq163.net/Article/details/26149164.sHtML</a></p>
+
+<h3>超100家创科企业已签约河套香港园区</h3>
+
+<p><a>http://m.blog.mzesu.cn/Article/details/20764270.sHtML</a></p>
+
+<h3>原油：中东局势以及亚洲需求推动油价录得周涨幅</h3>
+
+<p><a>http://xuhui.mq163.net/Article/details/04669825.sHtML</a></p>
+
+<h3>几页剧本看哭山东汉子！《孔繁森》主演揭秘幕后：全程含泪克制表演</h3>
+
+<p><a>http://www.blog.psptwl.cn/Article/details/83994480.sHtML</a></p>
+
+<h3>英国7月公共部门借款18亿英镑，高于预算责任办公室预期</h3>
+
+<p><a>http://www.blog.hudee.com.cn/Article/details/18466374.sHtML</a></p>
+
+<h3>土耳其请求国际刑警组织对内塔尼亚胡发出红色通缉令</h3>
+
+<p><a>http://www.bbs.jhlgscfw.cn/Article/details/10141585.sHtML</a></p>
 
 <p>内容根据现有新闻资料整理，具体信息以相关部门和权威媒体发布为准。</p>
 
